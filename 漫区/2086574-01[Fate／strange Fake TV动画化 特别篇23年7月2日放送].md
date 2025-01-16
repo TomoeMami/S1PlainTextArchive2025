@@ -7620,3 +7620,10 @@ fsf能加的多了
 找到专楼了留个脚印，newtype2月号有新绘柄<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">虽然只是监督访谈但还是买了
 期待定档吧
 
+*****
+
+####  Piano-Forest  
+##### 403#         楼主| 发表于 2025-1-14 00:28
+
+<img src="https://p.sda1.dev/21/5cd258c15cf2fd080eb97cf981f33ddd/yande.re 1215117 armor bondage fate_strange_fake megane mogi_shinichi pantyhose richard_i__fate_ sajou_ayaka skirt_lift sword tattoo_compressed.jpg" referrerpolicy="no-referrer">
+
