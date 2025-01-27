@@ -4388,3 +4388,617 @@ GODinGOD
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  滑稽救护车  
+##### 10680#       发表于 2025-1-13 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  holofan  
+##### 10681#       发表于 2025-1-16 14:05
+
+<img src="https://img.saraba1st.com/forum/202501/16/140442ttflt8vp487bm7bw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (18.89 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 14:04 上传
+
+<img src="https://img.saraba1st.com/forum/202501/16/140505zeijj3yp4pxpjqp2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.09 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 14:05 上传
+
+
+*****
+
+####  holofan  
+##### 10682#       发表于 2025-1-16 19:31
+
+ 本帖最后由 holofan 于 2025-1-16 20:49 编辑 
+
+<img src="https://img.saraba1st.com/forum/202501/16/193055ys1ibs7oyozy9oo7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (253.59 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 19:30 上传
+
+who？
+
+ordan又一个人设计了holo全箱所有人的演出服，难怪去年基本不冒泡 冒泡就说在忙，怕不是过劳死
+
+果然不是只有我一个人觉得怪
+
+<img src="https://img.saraba1st.com/forum/202501/16/204902oya7ga7c7zutr5l2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.83 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-16 20:49 上传
+
+*****
+
+####  rs5621  
+##### 10683#       发表于 2025-1-16 23:50
+
+这立绘大图看着还可以
+
+
+*****
+
+####  holofan  
+##### 10684#       发表于 2025-1-17 18:35
+
+<img src="https://img.saraba1st.com/forum/202501/17/183521hdf7p5pefpfkf7tt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 18:35 上传
+
+<img src="https://img.saraba1st.com/forum/202501/17/183534okr0iz10z5aizail.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (243.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-17 18:35 上传
+
+*****
+
+####  holofan  
+##### 10685#       发表于 2025-1-17 20:52
+
+今天打工店员全员兽耳
+
+你个店长不意思一下
+
+
+*****
+
+####  rs5621  
+##### 10686#       发表于 2025-1-17 21:04
+
+2动，卧槽
+
+*****
+
+####  rs5621  
+##### 10687#       发表于 2025-1-17 21:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">35讲解这么久，大头一句不懂结束战斗
+
+
+*****
+
+####  holofan  
+##### 10688#       发表于 2025-1-18 17:57
+
+更加衬托了刚铁嗓子
+
+*****
+
+####  holofan  
+##### 10689#       发表于 2025-1-18 22:47
+
+<img src="https://img.saraba1st.com/forum/202501/18/224721bicp6wkxpx5kd0i7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (210.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 22:47 上传
+
+*****
+
+####  holofan  
+##### 10690#       发表于 2025-1-18 22:48
+
+<img src="https://img.saraba1st.com/forum/202501/18/224832oqbzb1omkwim6xel.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (219.31 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 22:48 上传
+
+
+*****
+
+####  holofan  
+##### 10691#       发表于 2025-1-18 23:17
+
+<img src="https://img.saraba1st.com/forum/202501/18/230508rw1lto1qi1751qm0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (187.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-18 23:05 上传
+
+说实话换衣服的OP跟其他holomem的撞了
+
+但是要是不换的话现在的版本最好，简洁又有中毒性
+
+*****
+
+####  holofan  
+##### 10692#       发表于 2025-1-19 00:00
+
+<img src="https://img.saraba1st.com/forum/202501/19/000015hc0fxvc00vvp09ov.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (189.24 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 00:00 上传
+
+
+*****
+
+####  holofan  
+##### 10693#       发表于 2025-1-19 00:12
+
+突然沉迷的模拟经营类游戏
+
+*****
+
+####  holofan  
+##### 10694#       发表于 2025-1-19 17:37
+
+<img src="https://img.saraba1st.com/forum/202501/19/173751e42z4z9z1lr8r4l1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 17:37 上传
+
+
+*****
+
+####  holofan  
+##### 10695#       发表于 2025-1-19 20:00
+
+<img src="https://img.saraba1st.com/forum/202501/19/200011o778fvfb6fiv82vq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (124.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-19 20:00 上传
+
+瞎蒙都能这个分，服了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  holofan  
+##### 10696#       发表于 2025-1-19 21:01
+
+今天店员全员人外
+
+*****
+
+####  holofan  
+##### 10697#       发表于 2025-1-19 21:02
+
+6个人这个组合想到了OKFAMS
+
+今天是OWFAMS
+
+
+*****
+
+####  rs5621  
+##### 10698#       发表于 2025-1-19 21:30
+
+这个店长不靠谱
+
+*****
+
+####  holofan  
+##### 10699#       发表于 2025-1-19 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吉祥物店长
+
+
+*****
+
+####  holofan  
+##### 10700#       发表于 2025-1-19 22:55
+
+看饿了真的
+
+*****
+
+####  holofan  
+##### 10701#       发表于 2025-1-20 12:39
+
+<img src="https://img.saraba1st.com/forum/202501/20/123539sq5mwkke0nq5kcsa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-20 12:35 上传
+
+真 FAMS（いろはにほへっと あやふぶみこ）
+
+
+*****
+
+####  holofan  
+##### 10702#       发表于 2025-1-20 21:26
+
+这健身房模拟经营游戏的核心游玩内容完全不在模拟经营上
+
+
+*****
+
+####  holofan  
+##### 10703#       发表于 2025-1-20 21:26
+
+这健身房模拟经营游戏的核心游玩内容完全不在模拟经营上
+
+*****
+
+####  holofan  
+##### 10704#       发表于 2025-1-21 10:59
+
+<img src="https://img.saraba1st.com/forum/202501/21/105907bwxrr7ywdz79n0d6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.72 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 10:59 上传
+
+今天汉堡
+
+
+*****
+
+####  holofan  
+##### 10705#       发表于 2025-1-21 11:55
+
+<img src="https://img.saraba1st.com/forum/202501/21/115531nh4midc4ddidkf94.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (99.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 11:55 上传
+
+*****
+
+####  holofan  
+##### 10706#       发表于 2025-1-21 19:34
+
+表情是真的方便好用
+
+<img src="https://img.saraba1st.com/forum/202501/21/193424l1io786somq5on1q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (3.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 19:34 上传
+
+
+*****
+
+####  holofan  
+##### 10707#       发表于 2025-1-21 23:03
+
+下回几乎全新人，唯一老人只有miko和polka
+
+*****
+
+####  holofan  
+##### 10708#       发表于 2025-1-21 23:10
+
+miko自己也没想到吧 当初申请这个游戏许可的时候 最后会变成这么大规模的交替型联动企划
+
+还有EN也开始玩了
+
+
+*****
+
+####  holofan  
+##### 10709#       发表于 2025-1-21 23:22
+
+<img src="https://img.saraba1st.com/forum/202501/21/232252a7vy8dnqkbknkkkz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (179.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-21 23:22 上传
+
+*****
+
+####  holofan  
+##### 10710#       发表于 2025-1-22 14:20
+
+<img src="https://img.saraba1st.com/forum/202501/22/142046st9j5x99itfwdxdd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 14:20 上传
+
+
+*****
+
+####  holofan  
+##### 10711#       发表于 2025-1-22 18:42
+
+<img src="https://img.saraba1st.com/forum/202501/22/184152sqkh6rhqhd6pvpzm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.35 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-22 18:41 上传
+
+真实商战篇
+
+*****
+
+####  holofan  
+##### 10712#       发表于 2025-1-22 20:14
+
+看了一下day2的creator stage确实有cali和fuwamoco，看看把
+
+
+*****
+
+####  holofan  
+##### 10713#       发表于 2025-1-23 10:50
+
+今天的汉堡店怕不要太刺激了
+
+山田kanade加上koyo青
+
+*****
+
+####  holofan  
+##### 10714#       发表于 2025-1-23 10:53
+
+<img src="https://img.saraba1st.com/forum/202501/23/105259pnh58sjc5yz5y5mm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 10:52 上传
+
+该来的要来了，昨天直播就说了一大波告知即将到来
+
+
+*****
+
+####  holofan  
+##### 10715#       发表于 2025-1-23 12:35
+
+<img src="https://img.saraba1st.com/forum/202501/23/123538wz2n6e3ozne4o3ez.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 12:35 上传
+
+。。。
+
+*****
+
+####  karastar  
+##### 10716#       发表于 2025-1-23 12:36
+
+被夺舍了
+
+
+*****
+
+####  holofan  
+##### 10717#       发表于 2025-1-23 12:58
+
+<img src="https://img.saraba1st.com/forum/202501/23/125813zansk1xsknganxl6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (100.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 12:58 上传
+
+*****
+
+####  holofan  
+##### 10718#       发表于 2025-1-23 13:02
+
+[https://cocorostore.jp.sharp/cp2501-sakuramiko](https://cocorostore.jp.sharp/cp2501-sakuramiko)
+
+<img src="https://img.saraba1st.com/forum/202501/23/130208inphytnbyso0v8zt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (114.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 13:02 上传
+
+*****
+
+####  holofan  
+##### 10719#       发表于 2025-1-23 13:04
+
+<img src="https://img.saraba1st.com/forum/202501/23/130301f1qkv50egoa4svce.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (65.47 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 13:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/23/130316f76z2u369uuh397u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (57.74 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 13:03 上传
+
+<img src="https://img.saraba1st.com/forum/202501/23/130400juf3qx7qzzxflkfq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.86 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 13:04 上传
+
+
+*****
+
+####  holofan  
+##### 10720#       发表于 2025-1-23 13:08
+
+原产品KI-TX75卖价就达到了10W日元，也才多加了2万
+
+主要是不光加湿，还带了其他功能
+
+
+*****
+
+####  holofan  
+##### 10721#       发表于 2025-1-23 14:58
+
+<img src="https://img.saraba1st.com/forum/202501/23/145750d7qu6ma7ye6d7dd7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 14:57 上传
+
+特地强调了收录了上百条音声的非常吵的加湿器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+纯粉丝向了就是
+
+
+*****
+
+####  karastar  
+##### 10722#       发表于 2025-1-23 15:25
+
+带语音功能的加湿器吧，不知道能不能语音控制<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  holofan  
+##### 10723#       发表于 2025-1-23 17:01
+
+<img src="https://img.saraba1st.com/forum/202501/23/170123sxx2qx5use2aal3q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (166.87 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 17:01 上传
+
+[https://x.com/ordan/status/1882318882117202255](https://x.com/ordan/status/1882318882117202255)
+
+神
+
+
+*****
+
+####  holofan  
+##### 10724#       发表于 2025-1-23 19:22
+
+<img src="https://img.saraba1st.com/forum/202501/23/192156tuu9hludcf2hdye5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-23 19:21 上传
+
+有人汇总了
+
+*****
+
+####  holofan  
+##### 10725#       发表于 2025-1-23 22:05
+
+草还好有polka有能帮忙管理新人，要不早放送事故了
+
+
+*****
+
+####  rs5621  
+##### 10726#       发表于 2025-1-24 21:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏点了这下
+
+*****
+
+####  holofan  
+##### 10727#       发表于 2025-1-24 22:54
+
+<img src="https://img.saraba1st.com/forum/202501/24/225130h5nf5nwfnfn5wkmh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (76.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-1-24 22:51 上传
+
+2个半小时通关
+
+原则上miko这个企划内选的游戏原意是“调查”而不需要一定按通常的玩法去打到通关但是还是硬着头皮打通关了
+
