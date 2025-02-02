@@ -3515,3 +3515,12 @@ maxwell真的好玩啊，最近打到w4，好奇有什么视频或者文章讲�
 
 所以其实游戏里的这个小精灵的作用其实正好和Maxwell’s demon相反，maxwell‘s demon能在没有温差的时候创造出温差。而这个游戏里的小精灵只是纯粹的做了个热传导而已，让高温和低温物体的热量趋向于平衡。
 
+*****
+
+####  BRAVADO  
+##### 239#       发表于 2025-1-30 12:52
+
+ 本帖最后由 BRAVADO 于 2025-1-30 12:57 编辑 
+
+qc编程游戏quantum odyssey已出：[https://store.steampowered.com/app/2802710/Quantum_Odyssey/](https://store.steampowered.com/app/2802710/Quantum_Odyssey/)
+
