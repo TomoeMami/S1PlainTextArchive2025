@@ -1184,3 +1184,144 @@ Reddit很多大版块都是bot和各种水军
 
 不过东大又不是sb（
 
+*****
+
+####  猪突猛进R  
+##### 107#       发表于 2025-2-3 02:57
+
+奇葩小国——加拿大
+[https://www.bilibili.com/video/BV1r2FyeJETi](https://www.bilibili.com/video/BV1r2FyeJETi)
+
+装备制造业和电子信息产业曾经竞争力极强。
+
+43%的加拿大中青年认为如果能得到美国国籍并把财产转化为美元，他们就会支持加拿大成为美国的一部分。
+
+35%的加拿大年轻人认为魁北克和阿尔伯塔至少有一个在10年内会从加拿大分裂出去。
+
+
+*****
+
+####  wlbthh  
+##### 108#       发表于 2025-2-3 04:15
+
+你真硬吞加拿大可就真的铁扇公主吞猴哥了，纯文化接近又内部异见可猛了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  寺胖  
+##### 109#       发表于 2025-2-3 08:11
+
+建国学夜壶，把大家拿变成大号加沙的话，我是绝对支持的。
+
+先干死曲婉婷再说
+
+
+*****
+
+####  barry.allen  
+##### 110#       发表于 2025-2-3 09:24
+
+<blockquote>猪突猛进R 发表于 2025-2-3 02:57
+奇葩小国——加拿大
+
+https://www.bilibili.com/video/BV1r2FyeJETi
+
+</blockquote>
+魁北克闹分裂又不是第一次了，问卷和实际情况两码事。美国政府连自己本土都管理不好，真吞加拿大，那才叫好日子在后面
+
+*****
+
+####  barry.allen  
+##### 111#       发表于 2025-2-3 09:24
+
+<blockquote>猪突猛进R 发表于 2025-2-3 02:57
+奇葩小国——加拿大
+
+https://www.bilibili.com/video/BV1r2FyeJETi
+
+</blockquote>
+魁北克闹分裂又不是第一次了，问卷和实际情况两码事。美国政府连自己本土都管理不好，真吞加拿大，那才叫好日子在后面
+
+
+*****
+
+####  Steel.Haze  
+##### 112#       发表于 2025-2-3 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67133203&amp;ptid=2237116" target="_blank">变老的大二 发表于 2025-1-8 23:56</a>
+
+最麻幻想</blockquote>
+以纯战略而言，概念拥核并能小型化做成铁炸弹（巴基斯坦水平），然后配备J35，确实能实现吓阻效果。
+
+*****
+
+####  问道于盲  
+##### 113#       发表于 2025-2-3 10:52
+
+<blockquote>wlbthh 发表于 2025-2-3 04:15
+你真硬吞加拿大可就真的铁扇公主吞猴哥了，纯文化接近又内部异见可猛了
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+你们加拿大人不能人滚地留吗？不能装进滚装船运回带英去吗？
+
+
+*****
+
+####  initium  
+##### 114#       发表于 2025-2-3 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338140&amp;ptid=2237116" target="_blank">问道于盲 发表于 2025-2-3 10:52</a>
+你们加拿大人不能人滚地留吗？不能装进滚装船运回带英去吗？</blockquote>
+关键是怎么分辨，护照一撕买个丑国驾照我是加拿大人还是丑国人呢？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Steel.Haze  
+##### 115#       发表于 2025-2-3 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67137208&amp;ptid=2237116" target="_blank">darkking1200 发表于 2025-1-9 14:46</a>
+
+辐射世界观里美国就吞并了加拿大。然后辐射1/2里没怎么说，到了辐射战略版里各种相关事件一大堆。没想到有 ...</blockquote>
+辐射背景里面还真有加拿大游击队反抗占领，不过游击队员被美军抓到，就当街处决示众。
+
+*****
+
+####  YG111  
+##### 116#       发表于 2025-2-3 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338626&amp;ptid=2237116" target="_blank">initium 发表于 2025-2-3 12:08</a>
+
+关键是怎么分辨，护照一撕买个丑国驾照我是加拿大人还是丑国人呢？
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">红墨镜：查口音
+
+按这几天ykw驱逐移民的架势。怕是最后就是看着不爽先抓再说
+
+
+*****
+
+####  莫吉  
+##### 117#       发表于 2025-2-3 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67338140&amp;ptid=2237116" target="_blank">问道于盲 发表于 2025-2-3 10:52</a>
+
+你们加拿大人不能人滚地留吗？不能装进滚装船运回带英去吗？</blockquote>
+直接清空弹夹，死了就是美国人，没死就是加拿大人
+
+
+*****
+
+####  失业十年  
+##### 118#       发表于 2025-2-3 12:56
+
+阿三VS啊米狗
+
+是时候证明谁是美洲的主人了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
