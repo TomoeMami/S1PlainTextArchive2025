@@ -990,3 +990,332 @@ DICE的技术奖提名出来了</blockquote>
 能在不到半年时间全价卖到两千万以上这个数字的大制作游戏，无论哪个层面，能学的绝对都很多，你觉得不多 ...</blockquote>
 有没有可能，这个销量主要归功于第一款国产单机的buff以及卖力的宣发，跟游戏开发真没太大关系。
 
+*****
+
+####  日日日日日野  
+##### 100#       发表于 2025-2-14 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67425100&amp;ptid=2210743" target="_blank">outerish 发表于 2025-2-14 17:11</a>
+
+还真让小机器人拿了技术奖
+
+比较搞笑的是地狱潜兵拿最佳音乐，主题曲是很抓耳拉，不过也没好到最佳吧
+
+FF7rb ...</blockquote>
+rb好归好，也基本都是改编，所以到开发者这边没拿倒说得过去，原创优先吧
+
+*****
+
+####  青色精灵の最期  
+##### 101#       发表于 2025-2-14 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424786&amp;ptid=2210743" target="_blank">自演乙. 发表于 2025-2-14 16:40</a>
+
+习惯就好，说这些逼话的人甚至可能都不玩游戏，只是想趁机骂一下宇宙小机器人，你看智慧的再现也被tga提名 ...</blockquote>
+搞不好索尼就是被骂的太多，才越来越火。前单位部门领导口头语，让他们骂去，越骂咱越顺，一咒十年旺。你看XBOX，大家都是赞誉有加，结果奶死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  lilisipis  
+##### 102#       发表于 2025-2-14 19:23
+
+<blockquote>kuarwbwe 发表于 2025-2-14 15:39
+那我估计gdc年度也稳了。
+
+这下子要不是黑神话截胡了金摇杆，那今年又是一个大满贯作品了。
+
+ ...</blockquote>
+小机器人能和野炊，老头环，博德3一个水平就真见鬼了
+
+
+*****
+
+####  kuarwbwe  
+##### 103#       发表于 2025-2-14 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426198&amp;ptid=2210743" target="_blank">lilisipis 发表于 2025-2-14 19:23</a>
+小机器人能和野炊，老头环，博德3一个水平就真见鬼了</blockquote>
+这东西看同年游戏水平啊。不过被黑神话截胡说明确实不配和这几个大满贯一个地位呗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  麦吉卡  
+##### 104#       发表于 2025-2-15 02:30
+
+<blockquote>outerish 发表于 2024-12-16 14:20
+数毛社什么不吹的，小机器人物理效果在其它游戏也见过，没有很新鲜啊
+
+真要说强大的地方就是量大管饱还能 ...</blockquote>
+你太狂妄了，你以为物理效果就是画面好吗？我看到小机器人介绍物理效果的视频，那个切木头的片段让我惊得说不出话，在我看来跟美末2的穿衣服拉绳子一样，炫技到天上去了，别的游戏真做不到
+
+
+*****
+
+####  高妹控  
+##### 105#       发表于 2025-2-15 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67426198&amp;ptid=2210743" target="_blank">lilisipis 发表于 2025-2-14 19:23</a>
+小机器人能和野炊，老头环，博德3一个水平就真见鬼了</blockquote>
+你怎么不说提名全都不配<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  墨染白泉  
+##### 106#       发表于 2025-2-15 12:21
+
+所以最佳家庭为什么不是马趴呢
+
+
+*****
+
+####  loneblade  
+##### 107#       发表于 2025-2-15 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67429096&amp;ptid=2210743" target="_blank">麦吉卡 发表于 2025-2-15 02:30</a>
+你太狂妄了，你以为物理效果就是画面好吗？我看到小机器人介绍物理效果的视频，那个切木头的片段让我惊得 ...</blockquote>
+建议你搜下合金装备崛起切西瓜 十年前的游戏
+
+— from [S1 Next Goose](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  麦吉卡  
+##### 108#       发表于 2025-2-15 12:46
+
+<blockquote>loneblade 发表于 2025-2-15 12:28
+建议你搜下合金装备崛起切西瓜 十年前的游戏
+
+— from S1 Next Goose v3.3.96</blockquote>
+哪怕看过视频再来说话呢，不是有个概念就一样的，小机器人能够在切割下来的部位里面继续切割，切下来的每一块都不会消失，有自己的独立物理互动，别以为这一点容易，玩过的游戏多点就知道，太多的游戏只能做个近似的模拟，而且会用爆炸消失的方式来取巧
+
+
+*****
+
+####  chizuru  
+##### 109#       发表于 2025-2-15 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67430972&amp;ptid=2210743" target="_blank">墨染白泉 发表于 2025-2-15 12:21</a>
+
+所以最佳家庭为什么不是马趴呢</blockquote>
+要先问评选的人是否玩过空前盛会
+
+
+*****
+
+####  loneblade  
+##### 110#       发表于 2025-2-15 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431162&amp;ptid=2210743" target="_blank">麦吉卡 发表于 2025-2-15 12:46</a>
+
+哪怕看过视频再来说话呢，不是有个概念就一样的，小机器人能够在切割下来的部位里面继续切割，切下来的每 ...</blockquote>
+你可以自己试试切西瓜会不会继续切割 有没有独立互动
+
+
+*****
+
+####  pgain2004  
+##### 111#       发表于 2025-2-16 01:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67431162&amp;ptid=2210743" target="_blank">麦吉卡 发表于 2025-2-15 12:46</a>
+哪怕看过视频再来说话呢，不是有个概念就一样的，小机器人能够在切割下来的部位里面继续切割，切下来的每 ...</blockquote>
+ https://b23.tv/vPXwZRq
+
+
+*****
+
+####  gane1010  
+##### 112#       发表于 2025-2-16 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67424114&amp;ptid=2210743" target="_blank">kuarwbwe 发表于 2025-2-14 15:39</a>
+
+那我估计gdc年度也稳了。
+
+这下子要不是黑神话截胡了金摇杆，那今年又是一个大满贯作品了。
+
+ ...</blockquote>
+18年战神也差一点大满贯  金遥杆被堡垒之夜截胡   老实说那年最惨的应该是大表哥2了吧  大家公认历史级的游戏 然后搞笑的是各种奖项就是比不过战神4  <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">  
+
+
+*****
+
+####  chizuru  
+##### 113#       发表于 2025-2-16 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437594&amp;ptid=2210743" target="_blank">gane1010 发表于 2025-2-16 08:27</a>
+
+18年战神也差一点大满贯  金遥杆被堡垒之夜截胡   老实说那年最惨的应该是大表哥2了吧  大家公认历史级的 ...</blockquote>
+评奖就看一乐，游戏游玩时间都很长，你指望评审都玩过每一款提名游戏吗？战神5那年老父亲的了最佳表演也名不符实，玩过传世不朽就知道女主角的角色有多复杂，且不说完全是真人出演，没有躲在动作捕捉技术后面。
+
+
+*****
+
+####  hu794  
+##### 114#       发表于 2025-2-16 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67437594&amp;ptid=2210743" target="_blank">gane1010 发表于 2025-2-16 08:27</a>
+18年战神也差一点大满贯  金遥杆被堡垒之夜截胡   老实说那年最惨的应该是大表哥2了吧  大家公认历史级的 ...</blockquote>
+你这么一说才发现索尼的游戏全是偷的奖<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hu794  
+##### 115#       发表于 2025-2-16 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67436984&amp;ptid=2210743" target="_blank">pgain2004 发表于 2025-2-16 01:34</a>
+https://b23.tv/vPXwZRq
+
+能不能先问问别人到底在哪里看过类似案例，而不是上来一句太狂妄呢？</blockquote>
+这个就是典型琐🐶，张口就来。
+
+
+*****
+
+####  nancygreenlife  
+##### 116#       发表于 2025-2-16 10:57
+
+<blockquote>麦吉卡 发表于 2025-2-15 12:46
+哪怕看过视频再来说话呢，不是有个概念就一样的，小机器人能够在切割下来的部位里面继续切割，切下来的每 ...</blockquote>
+很久没见过这么彻底的打脸了，你不再挣扎一下吗？
+
+
+*****
+
+####  Tackstone  
+##### 117#       发表于 2025-2-16 11:11
+
+我去，木头能切。
+
+索尼顽皮狗这么会做游戏，星鸣光头一定会大麦的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  爱马仕不爱生活  
+##### 118#       发表于 2025-2-16 11:44
+
+<blockquote>麦吉卡 发表于 2025-2-15 12:46
+哪怕看过视频再来说话呢，不是有个概念就一样的，小机器人能够在切割下来的部位里面继续切割，切下来的每 ...</blockquote>
+气球仙人掌和光杆子椰子树这种吗
+
+*****
+
+####  拉莱耶妇联主任  
+##### 90#       发表于 2025-2-14 14:50
+
+ 本帖最后由 拉莱耶妇联主任 于 2025-2-14 14:51 编辑 
+
+索索又下一城，看来要横扫了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+另外楼上发言还挺重量级，真的是跪久了站不起来<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  高妹控  
+##### 91#       发表于 2025-2-14 15:22
+
+小丑牌、小机器人、地狱潜兵2、夺宝奇兵，DICE四大赢家
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  BRAVADO  
+##### 92#         楼主| 发表于 2025-2-14 15:25
+
+<blockquote>高妹控 发表于 2025-2-14 15:22
+小丑牌、小机器人、地狱潜兵2、夺宝奇兵，DICE四大赢家
+
+—— 来自 S1Fun</blockquote>
+animal well拿到了game direction，是重量级奖项
+
+
+*****
+
+####  ultraseven  
+##### 93#       发表于 2025-2-14 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423914&amp;ptid=2210743" target="_blank">BRAVADO 发表于 2025-2-14 15:25</a>
+
+animal well拿到了game direction，是重量级奖项</blockquote>
+你看看提名的竞争对手
+
+
+*****
+
+####  kuarwbwe  
+##### 94#       发表于 2025-2-14 15:39
+
+那我估计gdc也稳了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eulereld  
+##### 95#       发表于 2025-2-14 15:55
+
+ 本帖最后由 eulereld 于 2025-2-14 15:58 编辑 
+
+家庭遊戲是指合家歡遊戲任何年齡都能玩，入圍的遊戲中又不只有它一個單機
+小機械人裡沒動畫這種話都說得出來，只看CG是吧
+Action game的定義就是包括shooting很神奇吧
+到底要過多少年這些只看中文翻譯的愚蠢的言論才能消失
+
+<img src="https://p.sda1.dev/22/9a1a4b448270af50086ac3460e759f89/image.jpg" referrerpolicy="no-referrer">
+
+—— 來自 [鵝球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  BRAVADO  
+##### 96#         楼主| 发表于 2025-2-14 16:10
+
+<blockquote>eulereld 发表于 2025-2-14 15:55
+家庭遊戲是指合家歡遊戲任何年齡都能玩，入圍的遊戲中又不只有它一個單機
+
+小機械人裡沒動畫這種話都說得出 ...</blockquote>
+fps被称为action games从doom时代就开始了吧，之前考古过一些纸媒的review/90年代电视上的商业广告，发现早期的时候也有叫“fighting games”的，不知道因为何种原因后者变成了格斗游戏的专称了。
+
+现在汉语里的动作游戏一般在英语里可以用character action/stylish action/hack and slash games
+
+
+*****
+
+####  自演乙.  
+##### 97#       发表于 2025-2-14 16:40
+
+习惯就好，说这些逼话的人甚至可能都不玩游戏，只是想趁机骂一下宇宙小机器人，你看智慧的再现也被tga提名为最佳家庭游戏，但是就没有人会骂它一个单人游戏不应该获得这个奖和这个提名
+重点是骂索尼
+
+
+*****
+
+####  wanghuanqishi  
+##### 98#       发表于 2025-2-14 17:06
+
+索尼是你爹？不能骂索尼怎么的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  outerish  
+##### 99#       发表于 2025-2-14 17:11
+
+还真让小机器人拿了技术奖
+
+比较搞笑的是地狱潜兵拿最佳音乐，主题曲是很抓耳拉，不过也没好到最佳吧
+
+FF7rb连入围都没有，是因为非原创吗？
+
+
