@@ -2256,3 +2256,276 @@ evol看着是比无印乐的，创圣除了机设就不是啥正经片<img src="
 
 这集节奏正常了，篇幅应该够了
 
+*****
+
+####  XSK小龙王  
+##### 236#       发表于 2025-2-4 00:24
+
+要不是op剧透太多这集还是挺乐的
+
+
+*****
+
+####  zoomegg  
+##### 237#       发表于 2025-2-4 11:45
+
+evol真的很快乐<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PGGM10, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  创始’’’天翔  
+##### 238#       发表于 2025-2-4 19:44
+
+节奏不错，之前就想吐槽了这色彩看着像试验动画似的
+
+
+*****
+
+####  天青色的西风  
+##### 239#       发表于 2025-2-4 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=60157569&amp;ptid=2124992" target="_blank">格雷殿下 发表于 2023-3-20 18:11</a>
+
+当年高中同学一直推这个给我，我服了</blockquote>
+他是不是对你有12000年的爱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  oyss  
+##### 240#       发表于 2025-2-5 16:11
+
+发传单的大叔是不動?
+
+
+*****
+
+####  l159020  
+##### 241#       发表于 2025-2-5 20:49
+
+这部合体怎么不果飘的啊
+
+
+*****
+
+####  codezwei  
+##### 242#       发表于 2025-2-6 20:05
+
+第四集字幕没人做了吗。。。
+
+
+*****
+
+####  被击坠王  
+##### 243#       发表于 2025-2-6 22:10
+
+怎么招式的脑洞连LOGOS都不如了
+
+
+*****
+
+####  水莲寺流歌  
+##### 244#       发表于 2025-2-7 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这集的新角色出场还挺意料之外的
+
+
+*****
+
+####  nelson2062  
+##### 245#       发表于 2025-2-9 03:23
+
+那么问题来了，绿毛男和粉毛地雷女谁才是元素班的人，“合二为一”说的就是合体吧...但总觉得绿毛高纬度一点，开局和oped画面他总是和星盘？一起出现
+
+
+*****
+
+####  ashero  
+##### 246#       发表于 2025-2-9 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67378991&amp;ptid=2124992" target="_blank">nelson2062 发表于 2025-2-9 03:23</a>
+
+那么问题来了，绿毛男和粉毛地雷女谁才是元素班的人，“合二为一”说的就是合体吧...但总觉得绿毛高纬度一 ...</blockquote>
+绿毛对应女神人格ed最后抱着女主那个吧
+
+
+*****
+
+####  创始’’’天翔  
+##### 247#       发表于 2025-2-9 20:42
+
+ 本帖最后由 创始’’’天翔 于 2025-2-9 20:44 编辑 
+
+放大招一点魄力都没有。。。感觉就是差口气。目前剧情发展还行，节奏也挺舒服的
+
+*****
+
+####  创始’’’天翔  
+##### 248#       发表于 2025-2-9 20:43
+
+<blockquote>codezwei 发表于 2025-2-6 20:05
+第四集字幕没人做了吗。。。</blockquote>
+BV1uPP1ekEw4还是有的
+
+
+*****
+
+####  X(iaolw)S  
+##### 249#       发表于 2025-2-10 11:19
+
+阿B的是机翻字幕吧，正式的应该就只有NEO·QSW在做，比较慢第4集还没出
+
+
+*****
+
+####  权志龙  
+##### 250#       发表于 2025-2-10 11:40
+
+这部cr的英译中机翻字幕同步，要看的直接抓cr肉就行
+
+
+*****
+
+####  轮太  
+##### 251#       发表于 2025-2-11 17:18
+
+拉下的四五两集看完了
+
+感觉战斗场景主要是缺乏节奏上的变化，不管是画面还是BGM都缺乏关键时刻的提速/重击
+
+可能也和这两集吃瘪有关，不知道后面剧情高潮的时候有没有改善
+
+
+*****
+
+####  岸波白野  
+##### 252#       发表于 2025-2-11 17:27
+
+这剧本是有点意思，但人设先不说就这文戏演出作画已经给嚯嚯得差不多了，这集最后这种电波展开不比隔壁木柜子狂多了，这个系列猜前世和现世人物对应以及关系性变化的胃药展开属于很轻易就能玩出花那种，可惜evol后随着萝卜颓势卫星社也不行了而且这两作人设实在莫名其妙
+
+*****
+
+####  岸波白野  
+##### 253#       发表于 2025-2-11 17:27
+
+风怒编辑
+
+
+*****
+
+####  创始’’’天翔  
+##### 254#       发表于 2025-2-11 17:40
+
+人设确实是很大的问题，现在看来除了开播前能炒炒热度以外全是debuff。尤其是剧中前世的闪回更是割裂感十足
+
+
+*****
+
+####  codezwei  
+##### 255#       发表于 2025-2-12 19:48
+
+病娇太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  糖尔  
+##### 256#       发表于 2025-2-14 13:30
+
+这集没有前世却有女鬼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+百姬实在是太有魅力了
+
+
+*****
+
+####  13街的居住民  
+##### 257#       发表于 2025-2-14 14:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看了两集 越发想念evol 真的好喜欢
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  真爱与热情  
+##### 258#       发表于 2025-2-14 19:53
+
+百百姬身影也太伟岸
+
+
+*****
+
+####  wer4f  
+##### 259#       发表于 2025-2-15 19:27
+
+这集没人翻译吗
+
+
+*****
+
+####  创始’’’天翔  
+##### 260#       发表于 2025-2-15 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这才是创圣应有的颠劲
+
+
+*****
+
+####  ghostdio  
+##### 261#       发表于 2025-2-15 22:45
+
+泛式前周和这周在母鸡卡开庭前都有提到几句想星
+
+说是剧情发展还挺有意思，但因为热度过于路边一条估计也只是仅限于提几句了，看弹幕反应也是基本没人看
+
+只能说人设和廉价机战确实是拖后腿了。就算是前世的画风，这3d黑皮也说不上很好看
+
+
+*****
+
+####  ashero  
+##### 262#       发表于 2025-2-15 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67423291&amp;ptid=2124992" target="_blank">13街的居住民 发表于 2025-2-14 14:38</a>
+
+看了两集 越发想念evol 真的好喜欢
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+evol人设和发颠剧情真的无敌吧 还想再吃这口太难了
+
+
+*****
+
+####  wer4f  
+##### 263#       发表于 2025-2-16 10:40
+
+唉 怎么妹妹不去和百百姬结拜姐妹
+
+
+*****
+
+####  codezwei  
+##### 264#       发表于 2025-2-17 20:33
+
+<img src="https://img.saraba1st.com/forum/202502/17/203216xdiicdcb8fuddvcv.png" referrerpolicy="no-referrer">
+
+<strong>a2f74c2a983e5cf413e6b463209a065e.png</strong> (141.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 20:32 上传
+
+<img src="https://img.saraba1st.com/forum/202502/17/203225sy9v1y9xqnnxr069.png" referrerpolicy="no-referrer">
+
+<strong>8aac6e2f869c272e97c5cd8b6a92f7e5.png</strong> (172.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-17 20:32 上传
+
+才刚见面不久就莫名其妙的好上了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">   编，赶紧给我编<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
