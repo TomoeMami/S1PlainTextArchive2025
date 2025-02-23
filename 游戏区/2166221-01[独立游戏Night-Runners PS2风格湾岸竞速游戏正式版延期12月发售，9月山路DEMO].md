@@ -1218,3 +1218,148 @@ at和mt买车的时候就要选好，后期好像是没法改的。
 
 但它切档那音效听着真的好爽，但又感觉好像以前在那部游戏里也听过类似的，记不起来了
 
+*****
+
+####  Tnsbilws  
+##### 69#         楼主| 发表于 2025-2-20 12:19
+
+上两次的开发日志忘记发了
+
+还是更多的宽体套组，比较值得关注的是秋名山地图已经大致上完成了，以及正在制作中的属于顶级赞助者一辆专属定制款车辆
+
+<img src="https://img.saraba1st.com/forum/202502/20/121713fla892282ga2g215.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250220120505_04.png</strong> (1.57 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121714heaabnec8areqreq.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250220120505_05.png</strong> (1.68 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121715p0izmmhf4xk5ahzz.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250220120505_06.png</strong> (1.83 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121717esxe2sv63rqts06y.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250220120505_07.png</strong> (1.7 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121719o6t5k130cl5aflj7.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250220120505_08.png</strong> (1.84 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121720rqewwn14knqesoj4.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250220120505_01.png</strong> (1.95 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121721zxjdbx461dcb1dbf.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250220120505_02.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121722iultpziuto8yuop8.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250220120505_03.png</strong> (1.26 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121601dfhf0nj0y9t0rwzx.gif" referrerpolicy="no-referrer">
+
+<strong>4D8F1BC481C00E49DD27421488F7D6D7_01.gif</strong> (682.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121602c8b01vvho11ap11h.gif" referrerpolicy="no-referrer">
+
+<strong>4D8F1BC481C00E49DD27421488F7D6D7_02.gif</strong> (724.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121603um5zm7wzw9z5o5mu.gif" referrerpolicy="no-referrer">
+
+<strong>4D8F1BC481C00E49DD27421488F7D6D7_03.gif</strong> (590.04 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121604nczectat2zyvy1xw.gif" referrerpolicy="no-referrer">
+
+<strong>4D8F1BC481C00E49DD27421488F7D6D7_04.gif</strong> (691.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121604kovy0ivovkvz0yyo.gif" referrerpolicy="no-referrer">
+
+<strong>4D8F1BC481C00E49DD27421488F7D6D7_05.gif</strong> (643.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121605id1bxcczwokzxamn.gif" referrerpolicy="no-referrer">
+
+<strong>4D8F1BC481C00E49DD27421488F7D6D7_06.gif</strong> (658.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121606f9u8b0sngrusbrkr.gif" referrerpolicy="no-referrer">
+
+<strong>4D8F1BC481C00E49DD27421488F7D6D7_07.gif</strong> (545.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121607ryszp3gc11cs3cqx.gif" referrerpolicy="no-referrer">
+
+<strong>4D8F1BC481C00E49DD27421488F7D6D7_08.gif</strong> (596.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:16 上传
+
+<img src="https://img.saraba1st.com/forum/202502/20/121608xz6kjwanjywyw866.png" referrerpolicy="no-referrer">
+
+<strong>4D8F1BC481C00E49DD27421488F7D6D7_09.png</strong> (1.57 MB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 12:16 上传
+
