@@ -919,3 +919,44 @@ steam页面上了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+*****
+
+####  清浦刹那  
+##### 94#       发表于 2025-2-20 22:20
+
+<img src="https://img.saraba1st.com/forum/202502/20/221933zrw3hd3raz2g8jzy.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20250220-220705_X - 副本.png</strong> (812.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-2-20 22:19 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日亚上订了，现在还有折扣。
+
+
+*****
+
+####  朔方原的星  
+##### 95#         楼主| 发表于 2025-2-21 22:33
+
+数字版商品
+
+《Ever17-The Out of Infinity》
+
+Steam平台
+
+定价：160元
+
+链接：https://store.steampowered.com/app/2392500
+
+《Never7-The End of Infinity》
+
+Steam平台
+
+定价：90元
+
+链接：https://store.steampowered.com/app/2184620/
+
+定价已出
+
