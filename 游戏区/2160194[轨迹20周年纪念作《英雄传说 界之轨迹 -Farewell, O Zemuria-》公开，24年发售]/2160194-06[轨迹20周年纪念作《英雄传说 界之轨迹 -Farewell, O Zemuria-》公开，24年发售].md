@@ -3856,3 +3856,18 @@ ed不都这样了。。大概率回到认识学妹那天（</blockquote>
 
 —— 来自 realme RMX3708, Android 15上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+*****
+
+####  蒸汽投石BuBu車  
+##### 7752#       发表于 2025-2-22 00:37
+
+都怪条子，支持老范把他干碎
+
+
+*****
+
+####  jacket  
+##### 7753#       发表于 2025-2-23 07:45
+
+过年时候没注意OST出了，原来Final Boss 2 bgm的曲名叫神怒之日，这首和女神之歌两条track能循环播放到下作出来。
+
