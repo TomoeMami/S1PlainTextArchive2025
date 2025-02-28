@@ -1637,3 +1637,10 @@ SACD到了，好tm大啊，这是黑胶尺寸的包装了。搞不好会头还�
 生日曲爲《Marble Heart》：
 <img src="https://tc2.wfhtony.space/images/2025/02/22/3d91a3420bb84b9d86816e5b33b250ef.png" referrerpolicy="no-referrer">
 
+*****
+
+####  陆久舟  
+##### 6931#       发表于 2025-2-25 23:35
+
+SCSP明天更新2.0，不得不说VOY@GER做的确实不错，就是衣服卖的太贵了，唉，又要当凯子了
+
