@@ -1675,3 +1675,10 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 不知道现在进化到完全版没
 
+*****
+
+####  bolitao  
+##### 159#       发表于 2025-3-2 21:56
+
+模拟器已经完善到能够打完血源全程了，我是 Intel CPU + AMD 显卡（12600KF + 7800XT），用的官方 nightly 版 shadPS4 和[这个 up](https://www.bilibili.com/video/BV1opfkYPEgZ) 提供的 mod 方案，这周花 18 小时打通了本体+DLC，极少数情况会闪退或卡死，但是玩魂游没什么影响，模拟器备份存档、备份 boss 点、大退小退都非常方便，而且加载比ps4快多了，配合 lossless scaling 可以玩 120 帧，巨爽
+
