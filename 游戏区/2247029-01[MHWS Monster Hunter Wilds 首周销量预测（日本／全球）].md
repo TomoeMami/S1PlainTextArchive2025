@@ -488,3 +488,28 @@ https://steamdb.info
 
 这次能不能首周千万销量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  iou90  
+##### 52#         楼主| 发表于 2025-3-4 16:24
+
+这次全球的结果差不多出来了 3天800万 首周 10m 不难吧
+
+
+*****
+
+####  lly778  
+##### 53#       发表于 2025-3-4 20:22
+
+首周就是三天
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  ffmzsj  
+##### 54#       发表于 2025-3-5 07:44
+
+我来一个比较马后炮的估计（虽然跟我以前的感觉不会差太多）fami首周实体＜30万（在看到全球首周800万和steam数据之前我会预计首周实体＜40万）
+
