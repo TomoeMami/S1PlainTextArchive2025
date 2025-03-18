@@ -2037,3 +2037,10 @@ Timberborn_jhtAfjZ25s.jpg
 
 千辛万苦破局就等于通关了的感觉太重了。
 
+*****
+
+####  约翰里德  
+##### 172#       发表于 2025-3-16 00:30
+
+大促买了两天了，太有毒了，选了个螺旋山已经到周期17了，挖了不到地图十分之一吧，20多小时了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
