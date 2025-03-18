@@ -2784,3 +2784,979 @@ KONAMI的世界级ip现在能拿多少出来？
 不知道现在又锁上了不？</blockquote>
 没锁啊…………还在呢
 
+*****
+
+####  Dreammask  
+##### 307#       发表于 2025-3-1 20:23
+
+看了下试玩发现高速模式bgm也跟着加速的，也不知道Konami能不能改掉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+另外居然没想过把2代两个外传拿来当限定版特典吗
+
+
+*****
+
+####  关二爷  
+##### 308#       发表于 2025-3-1 21:34
+
+会增加啥新要素不
+
+
+*****
+
+####  灰狼  
+##### 309#       发表于 2025-3-2 04:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67551969&amp;ptid=2090186" target="_blank">Dreammask 发表于 2025-3-1 20:23</a>
+
+看了下试玩发现高速模式bgm也跟着加速的，也不知道Konami能不能改掉
+
+另外居然没想过把2代两个外传拿来当限 ...</blockquote>
+这么糙，那不就真是模拟器加速了
+
+
+*****
+
+####  Dreammask  
+##### 310#       发表于 2025-3-2 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67554354&amp;ptid=2090186" target="_blank">灰狼 发表于 2025-3-2 04:40</a>
+
+这么糙，那不就真是模拟器加速了</blockquote>
+我也这么怀疑，但如果是模拟器的话这ROM的修改幅度不会这么大的......吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+总之贴个原视频：[https://www.bilibili.com/video/BV1xpfRYXEQM/](https://www.bilibili.com/video/BV1xpfRYXEQM/)
+
+
+*****
+
+####  センコウ  
+##### 311#         楼主| 发表于 2025-3-4 10:02
+
+<img src="https://img.saraba1st.com/forum/202503/04/100247hwzvyzxktk69ykzg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-4 10:02 上传
+
+
+*****
+
+####  火红之眼  
+##### 312#       发表于 2025-3-4 12:51
+
+『幻想水滸伝I＆II』リマスター版に“イベントタイマーの停止機能”追加。クライブイベントが見やすくなり、時間を気にせず仲間集めが楽しめるように
+
+看奖杯列表，有克莱夫事件奖杯，还以为要赶了，这次居然直接给时限取消功能
+
+现在又动画化，今年不fuck科乐美了
+
+
+*****
+
+####  无动于衷  
+##### 313#       发表于 2025-3-4 13:06
+
+幻水那手游能活够一年吗
+
+
+*****
+
+####  Niu  
+##### 314#       发表于 2025-3-4 13:14
+
+手遊請光速暴死
+
+這種鞭屍般的行為簡直噁心人
+
+
+*****
+
+####  缺德猫  
+##### 315#       发表于 2025-3-4 16:20
+
+之前不是说科乐美出IP，游戏是紫龙制作，不过后面谈崩了，原来是科乐美自己下场了啊
+
+
+*****
+
+####  woaimiyabi  
+##### 316#       发表于 2025-3-4 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67571056&amp;ptid=2090186" target="_blank">火红之眼 发表于 2025-3-4 12:51</a>
+
+『幻想水滸伝I＆II』リマスター版に“イベントタイマーの停止機能”追加。クライブイベントが見やすくなり ...</blockquote>
+这个设置好啊，值得别的想复刻老游戏的厂商学习。
+
+
+*****
+
+####  山口達也  
+##### 317#       发表于 2025-3-4 19:04
+
+算了，编辑了
+
+
+*****
+
+####  火红之眼  
+##### 318#       发表于 2025-3-4 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573205&amp;ptid=2090186" target="_blank">woaimiyabi 发表于 2025-3-4 17:22</a>
+
+这个设置好啊，值得别的想复刻老游戏的厂商学习。</blockquote>
+看了下预载后的1.02版本更新信息，他这个时限停止甚至是做好后才加的......
+
+
+*****
+
+####  Piano-Forest  
+##### 319#       发表于 2025-3-5 00:38
+
+名作RPG復活の狼煙！ 『幻想水滸伝 I＆II HDリマスター』はIP復活へのファーストステップ。熱が高まれば続編や完全新作のナンバリングも!? 開発陣にインタビュー！
+[https://www.famitsu.com/article/202503/35433](https://www.famitsu.com/article/202503/35433)
+
+<img src="https://p.sda1.dev/22/c5424dffb9b099fe685c49bf07073048/20250304_082910.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  等等等灯等灯  
+##### 320#       发表于 2025-3-5 08:39
+
+出了吗？
+
+
+*****
+
+####  棺材叔叔  
+##### 321#       发表于 2025-3-5 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573971&amp;ptid=2090186" target="_blank">山口達也 发表于 2025-3-4 19:04</a>
+
+konami的手游运营大部分都还不错，除了卡牌王自走棋那种先天不足，光速褒姒的... ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">天国里的LP。。
+
+不过也有可能是初期运营经验不足，不知道还能不能重新搬出来做续作
+
+
+*****
+
+####  Toby_dak  
+##### 322#       发表于 2025-3-5 12:40
+
+SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。这两天从库里进不了商店，钱包换成日元计算后就正常了。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  nanonya2  
+##### 323#       发表于 2025-3-5 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578842&amp;ptid=2090186" target="_blank">Toby_dak 发表于 2025-3-5 12:40</a>
+SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。这两天从库里进不了商店，钱包换成日元计算后就 ...</blockquote>
+没锁，可能是网络问题？
+我这里国区能进商店页面，也有价格显示
+
+*****
+
+####  黑暗之眼  
+##### 324#       发表于 2025-3-5 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67578842&amp;ptid=2090186" target="_blank">Toby_dak 发表于 2025-3-5 12:40</a>
+SB KONAMI又锁区了？之前打折时候买了进库，能进商店页面。这两天从库里进不了商店，钱包换成日元计算后就 ...</blockquote>
+刚刚才从库里进商店找有没预载呢，可以啊
+
+—— 来自 HUAWEI NOH-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  Toby_dak  
+##### 325#       发表于 2025-3-5 13:31
+
+<blockquote>nanonya2 发表于 2025-3-5 14:20
+没锁，可能是网络问题？
+
+我这里国区能进商店页面，也有价格显示</blockquote>
+人在日本，用手机的steam app。刚才又试过，症状依然。
+
+
+*****
+
+####  ds2324ds2  
+##### 326#       发表于 2025-3-5 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67573205&amp;ptid=2090186" target="_blank">woaimiyabi 发表于 2025-3-4 17:22</a>
+
+这个设置好啊，值得别的想复刻老游戏的厂商学习。</blockquote>
+百英雄传你学学啊。
+
+
+*****
+
+####  Toby_dak  
+##### 327#       发表于 2025-3-6 12:07
+
+傍晚才解锁，安心上班。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  qucqee  
+##### 328#       发表于 2025-3-6 12:39
+
+谁有空发一下1和2的完美结局攻略
+
+
+*****
+
+####  Piano-Forest  
+##### 329#       发表于 2025-3-6 12:55
+
+『幻想水滸伝 I&amp;II HDリマスター 門の紋章戦争 / デュナン統一戦争』
+
+本日 2025年3月6日 発売です！！！
+
+『幻想水滸伝I』のキャラクターデザインを担当された河野純子さん描きおろしイラストを公開！
+
+—108人の仲間とともに、
+
+　少年の運命がいま、動きだす—
+<img src="https://p.sda1.dev/22/ebbd005c0336e7eb8017df9494212558/20250306_125502.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  缺德猫  
+##### 330#       发表于 2025-3-7 01:09
+
+小时候一直玩的官方繁中，这新的人名、地名好不习惯啊，之前的翻译很古早，卡罗街、绿山市之类的，新版人名还好，地名全是音译，需要适应一下....
+
+*****
+
+####  缺德猫  
+##### 331#       发表于 2025-3-7 01:11
+
+2代PC的攻略，不知道重制版好不好用
+
+[https://vv0817.neocities.org/gametxt/04_fssuiko2](https://vv0817.neocities.org/gametxt/04_fssuiko2)
+
+
+*****
+
+####  Toby_dak  
+##### 332#       发表于 2025-3-7 15:26
+
+用STEAMDECK玩不了？新游戏输入名字就一直播着BGM黑屏，没出现loading画面。
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
+
+
+*****
+
+####  ds2324ds2  
+##### 333#       发表于 2025-3-7 16:07
+
+1代玩了一会儿了，感觉游戏应该把原版的载入之类的速度都加快了。玩起来还是挺流畅的。但是一些古老UI设置问题就没改，特别是装备和包裹这块。真的非常90年代。
+
+
+*****
+
+####  周处除三害  
+##### 334#       发表于 2025-3-7 17:05
+
+新手刚玩，二代有好的阵容人物推荐吗？
+
+----发送自 [Xiaomi 23049RAD8C,Android 14](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  森田美位子  
+##### 335#       发表于 2025-3-7 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599927&amp;ptid=2090186" target="_blank">周处除三害 发表于 2025-3-7 17:05</a>
+
+新手刚玩，二代有好的阵容人物推荐吗？
+
+----发送自 Xiaomi 23049RAD8C,Android 14</blockquote>
+这游戏战斗不难，练级又快，而且主角这个超级奶妈托底，你可以多试试不同组合
+
+
+*****
+
+####  牧月萌  
+##### 336#       发表于 2025-3-7 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67599927&amp;ptid=2090186" target="_blank">周处除三害 发表于 2025-3-7 17:05</a>
+新手刚玩，二代有好的阵容人物推荐吗？
+
+----发送自 Xiaomi 23049RAD8C,Android 14</blockquote>
+2代游戏难度其实不高，其实看脸练人就可以，谨记这游戏物理输出在纹章成型加持下（怒攻击1.5，返刃攻击两次，倍返伤害两倍）输出远超魔法
+
+物理输出格斗家师徒，地雄星若叶、地辟星龙锵锵
+数值高，合体技高伤（需要两个怒纹章）
+天孤星维克多，加入早而且流程强制在队机会多
+
+万能性特点是数值高，能打能魔
+主要角色1主角2主角，这两人有个固定纹章占位置，天暗星弗利克数值高但是只有2纹章位
+其余一些三空位数值尚可的角色可以备选，如天微星奇利，地明星希那
+
+魔法位就不多说了，天间星路克，地然星梅扎斯，喜欢带妹子的可以考虑天罪星爱丽和天慧星汀嘉璐
+
+再加两个流程强者，早期地周星扎姆扎，中期地恶星欧蓝，这两个都是加入时期因为武器强化可以微风一阵子后期被其他人超过，欧蓝后期给个怒球还能用用。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  茶茶丸  
+##### 337#       发表于 2025-3-7 19:09
+
+1当然值得一玩，某种意义上比2还痛
+
+论坛云玩家太多啦
+
+顺便路克是天闲星（
+
+
+*****
+
+####  牧月萌  
+##### 338#       发表于 2025-3-7 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67601078&amp;ptid=2090186" target="_blank">茶茶丸 发表于 2025-3-7 19:09</a>
+1当然值得一玩，某种意义上比2还痛
+
+论坛云玩家太多啦</blockquote>
+日版就天间星，叫习惯了，不要在意细节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  周处除三害  
+##### 339#       发表于 2025-3-8 10:39
+
+刚接触这个系列，一般直接玩2还是推荐1玩了再玩2？我看2里的英雄不少都是1里面的。
+
+----发送自 [Xiaomi 23049RAD8C,Android 14](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  张路  
+##### 340#       发表于 2025-3-8 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67604592&amp;ptid=2090186" target="_blank">周处除三害 发表于 2025-3-8 10:39</a>
+刚接触这个系列，一般直接玩2还是推荐1玩了再玩2？我看2里的英雄不少都是1里面的。
+
+----发送自 Xiaomi 230 ...</blockquote>
+一代流程不长，先玩一代吧
+
+
+*****
+
+####  西多士  
+##### 341#       发表于 2025-3-8 12:04
+
+Switch版1代洛克兰村的赌钱SL作弊大法是不是给修了？测试了一下退出读档，每次杯子里的金币位置都不一样了
+
+
+*****
+
+####  航站楼  
+##### 342#       发表于 2025-3-8 12:16
+
+3dm找了份旧版的攻略，对照着打通了1没啥问题。
+
+通过网盘分享的文件：幻想水浒传1&amp;2 旧版攻略.rar
+
+链接: [https://pan.baidu.com/s/1S0EXUz5gIoaoMwSf3Ud5wQ?pwd=644c](https://pan.baidu.com/s/1S0EXUz5gIoaoMwSf3Ud5wQ?pwd=644c) 提取码: 644c 
+
+
+*****
+
+####  xyzchaos  
+##### 343#       发表于 2025-3-8 12:49
+
+不知道二代的推门bug还在不在
+
+*****
+
+####  ds2324ds2  
+##### 344#       发表于 2025-3-8 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605180&amp;ptid=2090186" target="_blank">西多士 发表于 2025-3-8 12:04</a>
+
+Switch版1代洛克兰村的赌钱SL作弊大法是不是给修了？测试了一下退出读档，每次杯子里的金币位置都不一样了 ...</blockquote>
+等梁山泊建成之后去赌筛子吧，存档点就在边上。
+
+
+*****
+
+####  牧月萌  
+##### 345#       发表于 2025-3-8 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605579&amp;ptid=2090186" target="_blank">xyzchaos 发表于 2025-3-8 12:49</a>
+不知道二代的推门bug还在不在</blockquote>
+psp版就没了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  若菜  
+##### 346#       发表于 2025-3-8 16:07
+
+<blockquote>西多士 发表于 2025-3-8 12:04
+Switch版1代洛克兰村的赌钱SL作弊大法是不是给修了？测试了一下退出读档，每次杯子里的金币位置都不一样了 ...</blockquote>
+修了，硬着头皮sl到了两万启动资金
+
+
+*****
+
+####  西多士  
+##### 347#       发表于 2025-3-8 16:26
+
+<blockquote>若菜 发表于 2025-3-8 16:07
+修了，硬着头皮sl到了两万启动资金</blockquote>
+首发特典能领到57300块钱作为启动资金
+
+
+*****
+
+####  忧蓝  
+##### 348#       发表于 2025-3-8 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67607376&amp;ptid=2090186" target="_blank">西多士 发表于 2025-3-8 16:26</a>
+首发特典能领到57300块钱作为启动资金</blockquote>
+我不知是不是一开始太快点错了，没领到这个特典（好像还有封印球…）
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  火红之眼  
+##### 349#       发表于 2025-3-8 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67605579&amp;ptid=2090186" target="_blank">xyzchaos 发表于 2025-3-8 12:49</a>
+
+不知道二代的推门bug还在不在</blockquote>
+PSP版就修了
+
+
+*****
+
+####  牧月萌  
+##### 350#       发表于 2025-3-8 23:00
+
+一代最开始好基友入队后两人跑去地图左边那个村子还能拿个金运球（主角自己去是幸运球）
+
+不过这回特典一开始就送了，加上1代每人就一个纹章槽，所以意义也不大了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ztkong  
+##### 351#       发表于 2025-3-10 08:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">有人打2代遇到死机bug么囧。。。
+
+进度在打完卢卡，然后自由行动去水门用蔷薇胸针收贵族那。。。开始对话到他说胸针丢了，然后就定版了，音乐照旧，按键全失效。。。我尝试了不带胸针和带胸针，不下5次对话次次都定版。。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+现在先去推主线打吸血鬼了，过一阵再回来试试。。。
+
+
+*****
+
+####  Demi.Albertini  
+##### 352#       发表于 2025-3-10 09:11
+
+好像是中文版的问题，换日文过了再切回来看看呢
+
+听起来应该是少个BGM文件……因为跟他对话会切BGM……
+
+
+*****
+
+####  alfredno2  
+##### 353#       发表于 2025-3-10 09:18
+
+遇到了2个BUG
+
+通需要用玫瑰胸针加入的家伙对话会卡死
+
+文字换成日语就能过去
+
+第二个收齐108星石板 退出时就几率死机
+
+
+*****
+
+####  alfredno2  
+##### 354#       发表于 2025-3-10 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67617884&amp;ptid=2090186" target="_blank">ztkong 发表于 2025-3-10 08:55</a>
+
+有人打2代遇到死机bug么囧。。。
+
+进度在打完卢卡，然后自由行动去水门用蔷薇胸针收贵族那。。。开始对话到 ...</blockquote>
+语言改成日语 加入之后再改回来
+
+*****
+
+####  ztkong  
+##### 355#       发表于 2025-3-10 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618088&amp;ptid=2090186" target="_blank">alfredno2 发表于 2025-3-10 09:22</a>
+
+语言改成日语 加入之后再改回来</blockquote>
+感谢，下班回去搞
+
+
+*****
+
+####  等等等灯等灯  
+##### 356#       发表于 2025-3-10 09:33
+
+幻想水浒传1《GensoSuikoden》PSP1+2版全流程图文攻略
+[https://mip.mamecn.com/wz/243195.html](https://mip.mamecn.com/wz/243195.html)
+
+一个更详细的psp版攻略，应该也能用在这版吧
+
+
+*****
+
+####  月光乱舞  
+##### 357#       发表于 2025-3-10 20:59
+
+先把1代通关了，最后特别鸣谢里看到村山吉隆还是有点感慨，也是让自己和留下的出色作品让全世界的玩家永远记住了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202503/10/205855vfpp3qurz33zpi2t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.73 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-10 20:58 上传
+
+
+*****
+
+####  alfredno2  
+##### 358#       发表于 2025-3-10 23:49
+
+一代简单通了
+
+二代108星到双头狼了 二代很满意 部分场景优化的很好（有水和火的地方） 大本营也还行
+
+重置不加入几个隐藏BOSS有点可惜
+
+
+*****
+
+####  Mephisto  
+##### 359#       发表于 2025-3-11 10:13
+
+1代真是难受，战斗大部分都在平砍，像素粗糙，2代感觉各方面都精细很多
+
+
+*****
+
+####  缺德猫  
+##### 360#       发表于 2025-3-12 04:37
+
+看来不是我印象流，PC版小人精细度比新版高，新版用的PSP版底子....翻译也超级烂...老繁中的翻译读起来很舒服，新翻译纯糊弄，更别提人名、地名这些了。
+
+<img src="https://img.saraba1st.com/forum/202503/12/043728l8nd5o6454osh6hi.jpg" referrerpolicy="no-referrer">
+
+<strong>20240318042531_1.jpg</strong> (57.03 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 04:37 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/043658ztcuctc3tuw8d99d.jpg" referrerpolicy="no-referrer">
+
+<strong>20250312041245_1.jpg</strong> (176.37 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 04:36 上传
+
+
+*****
+
+####  ds2324ds2  
+##### 361#       发表于 2025-3-12 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67626076&amp;ptid=2090186" target="_blank">Mephisto 发表于 2025-3-11 10:13</a>
+
+1代真是难受，战斗大部分都在平砍，像素粗糙，2代感觉各方面都精细很多</blockquote>
+菜刀队才是这游戏的终极解，你玩二代最高效率的战斗依然是连砍加怒。
+
+
+*****
+
+####  ztkong  
+##### 362#       发表于 2025-3-12 11:54
+
+打完了w白金撒花。
+
+<img src="https://img.saraba1st.com/forum/202503/12/115120ws7s78448epao7se.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (193.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 11:51 上传
+
+<img src="https://img.saraba1st.com/forum/202503/12/115120p4h8h0q1zo8qqhi8.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (286.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-12 11:51 上传
+
+1代12小时+2代26个小时左右。
+
+白金tips
+
+游戏要求全程hard通关，newgame别选错
+
+1代道具就全颜料收集一个杯。
+
+2代请及时关闭游戏计时，枪手公会事件要求20小时内完成，压力还是比较大的，关了省事。
+
+2代料理对决最好跟着主线做，因为每场有游戏时间1小时间隔，如果堆到最后做只能白白挂机凑时间。
+
+料理前菜用沙拉加酱油，主菜我看着评委定，甜品前期用冰淇淋加糖，后期用蛋糕加美乃滋。
+
+2代跳舞请准备好纸笔，高等级每次动作都是随机的，抄下来照着做是最容易的。
+
+飞鼠不需要间谍或者找npc对话，直接按顺序刷就行。
+
+
+*****
+
+####  ds2324ds2  
+##### 363#       发表于 2025-3-12 22:27
+
+问个问题，为啥一代能战斗加速到3级，二代只能加速到2级
+
+
+*****
+
+####  Ny  
+##### 364#       发表于 2025-3-12 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67639290&amp;ptid=2090186" target="_blank">ds2324ds2 发表于 2025-3-12 22:27</a>
+
+问个问题，为啥一代能战斗加速到3级，二代只能加速到2级</blockquote>
+游戏中期收了史塔利恩之后就有4X战斗加速了, 不用带他就能开4X
+
+但大地图移动加速还是要带上他
+
+
+*****
+
+####  等等等灯等灯  
+##### 365#       发表于 2025-3-13 02:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67634382&amp;ptid=2090186" target="_blank">ztkong 发表于 2025-3-12 11:54</a>
+
+打完了w白金撒花。</blockquote>
+游戏要求全程hard通关 是指1代还是2代还是都要hard
+
+
+*****
+
+####  ztkong  
+##### 366#       发表于 2025-3-13 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67640040&amp;ptid=2090186" target="_blank">等等等灯等灯 发表于 2025-3-13 02:45</a>
+
+游戏要求全程hard通关 是指1代还是2代还是都要hard</blockquote>
+1代2代都要hard通关。
+
+
+*****
+
+####  周处除三害  
+##### 367#       发表于 2025-3-13 08:46
+
+加速每次都要手动？
+
+----发送自 [Xiaomi 23049RAD8C,Android 14](http://stage1.5j4m.com/?1.37)
+
+
+*****
+
+####  等等等灯等灯  
+##### 368#       发表于 2025-3-13 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67640510&amp;ptid=2090186" target="_blank">ztkong 发表于 2025-3-13 08:27</a>
+
+1代2代都要hard通关。</blockquote>
+请问1代我选了normal了会损失什么
+
+
+*****
+
+####  alfredno2  
+##### 369#       发表于 2025-3-13 09:33
+
+奖杯而已
+
+
+*****
+
+####  ztkong  
+##### 370#       发表于 2025-3-13 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67640770&amp;ptid=2090186" target="_blank">等等等灯等灯 发表于 2025-3-13 09:03</a>
+
+请问1代我选了normal了会损失什么</blockquote>
+损失一个奖杯或者成就。。。不在乎的话也没啥
+
+<img src="https://img.saraba1st.com/forum/202503/13/101641h107caaz5zqthhs6.png" referrerpolicy="no-referrer">
+
+<strong>{B67C2B7C-423A-4b7e-BF9A-574BAA18EFA7}.png</strong> (23.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-3-13 10:16 上传
+
+
+*****
+
+####  等等等灯等灯  
+##### 371#       发表于 2025-3-13 13:06
+
+请问幻水1刚打下一个城堡后去一个人家里偷剑，那个人家里有个转盘，那个转盘上的两个宝箱会有什么好东西吗
+
+
+*****
+
+####  ds2324ds2  
+##### 372#       发表于 2025-3-13 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67643030&amp;ptid=2090186" target="_blank">等等等灯等灯 发表于 2025-3-13 13:06</a>
+
+请问幻水1刚打下一个城堡后去一个人家里偷剑，那个人家里有个转盘，那个转盘上的两个宝箱会有什么好东西吗 ...</blockquote>
+问号那个可以拿到一个道具香炉。在战斗中使用可以全体回复50点HP。其他就没有什么特别的意义了。
+
+*****
+
+####  李小狼  
+##### 373#       发表于 2025-3-13 13:37
+
+请问下一代一开始拿的金运球和特典送的一个可以叠加吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  牧月萌  
+##### 374#       发表于 2025-3-13 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67643243&amp;ptid=2090186" target="_blank">李小狼 发表于 2025-3-13 13:37</a>
+请问下一代一开始拿的金运球和特典送的一个可以叠加吗？
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+我印象里是可的，因为后边还有怪物能掉这玩意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  captoon  
+##### 375#       发表于 2025-3-13 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67643243&amp;ptid=2090186" target="_blank">李小狼 发表于 2025-3-13 13:37</a>
+
+请问下一代一开始拿的金运球和特典送的一个可以叠加吗？
+
+—— 来自 鹅球 v3.3.96 ...</blockquote>
+可以，不过意义不大，因为金钱上限很低，拼命用就是了
+
+*****
+
+####  李小狼  
+##### 376#       发表于 2025-3-13 17:53
+
+多谢楼上二位，想想也是，不如多拿个经验球增加通关效率了，开局送了5万，第一个村口稍微赌赌就跟开了金手指一样财务自由了
+
+
+*****
+
+####  牧月萌  
+##### 377#       发表于 2025-3-13 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67645161&amp;ptid=2090186" target="_blank">李小狼 发表于 2025-3-13 17:53</a>
+多谢楼上二位，想想也是，不如多拿个经验球增加通关效率了，开局送了5万，第一个村口稍微赌赌就跟开了金手 ...</blockquote>
+钱花不完可以给2代继续出场的人打打武器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+（打到10级以上2代出场时武器会额外升级，打到16级+3）
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  ds2324ds2  
+##### 378#       发表于 2025-3-13 18:33
+
+问个问题，有哪里能看到二代所有的侦探调查资料啊。这个东西感觉一个个弄太费时间了。
+
+
+*****
+
+####  李小狼  
+##### 379#       发表于 2025-3-13 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67645411&amp;ptid=2090186" target="_blank">牧月萌 发表于 2025-3-13 18:28</a>
+
+钱花不完可以给2代继续出场的人打打武器
+
+（打到10级以上2代出场时武器会额外升级，打到16级+3）</blockquote>
+这游戏除了能收一代主角居然还有这种联动吗？
+
+当年只草草通过2代，错过了1
+
+
+*****
+
+####  牧月萌  
+##### 380#       发表于 2025-3-13 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67645480&amp;ptid=2090186" target="_blank">李小狼 发表于 2025-3-13 18:35</a>
+这游戏除了能收一代主角居然还有这种联动吗？
+
+当年只草草通过2代，错过了1 ...</blockquote>
+等级也是可以加算的，只不过等级99才有最大加成比较难练就是了
+
+最直观就是2代弗利克维克多一开始加入，继承了存档等级就要高一些
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  等等等灯等灯  
+##### 381#       发表于 2025-3-14 16:08
+
+一代在据点传送到边远村子，难道只能走回据点？
+
+
+*****
+
+####  ds2324ds2  
+##### 382#       发表于 2025-3-14 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654731&amp;ptid=2090186" target="_blank">等等等灯等灯 发表于 2025-3-14 16:08</a>
+
+一代在据点传送到边远村子，难道只能走回据点？</blockquote>
+有个镜子可以回城。不过只能村庄外面用。
+
+
+*****
+
+####  woshenc  
+##### 383#       发表于 2025-3-14 16:35
+
+一代主人公的魂之纹章是不是除去门之纹章外系列中最强力的
+
+
+*****
+
+####  Dreammask  
+##### 384#       发表于 2025-3-14 17:31
+
+看到1代攻略有主角在泰德第一次入队后立马穿过虎狼山可以拿纹章的隐藏事件，问下潭友们除了练级外还有什么奇招能顺利逃过路上的一堆强敌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  captoon  
+##### 385#       发表于 2025-3-15 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67655411&amp;ptid=2090186" target="_blank">Dreammask 发表于 2025-3-14 17:31</a>
+
+看到1代攻略有主角在泰德第一次入队后立马穿过虎狼山可以拿纹章的隐藏事件，问下潭友们除了练级外还有什么 ...</blockquote>
+贿赂，不过最好等级高点。
+
+开局先去更新下装备，SAVE下，打1场3个毛怪那种，打完直升LV 9。再去跑隐藏会比较容易。
+
+
+*****
+
+####  qucqee  
+##### 386#       发表于 2025-3-15 03:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67655411&amp;ptid=2090186" target="_blank">Dreammask 发表于 2025-3-14 17:31</a>
+
+看到1代攻略有主角在泰德第一次入队后立马穿过虎狼山可以拿纹章的隐藏事件，问下潭友们除了练级外还有什么 ...</blockquote>
+贿赂100%成功的
+
+如果有特典的话 生下来就有5w如履平地
+
+如果没特典就去右边村子赌 不停sl赌个十万
+
+不过1代主要是个情怀 以现在眼光游戏系统什么的做的极烂 过剧情就好不必认真
+
+
+*****
+
+####  火红之眼  
+##### 387#       发表于 2025-3-15 04:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67654934&amp;ptid=2090186" target="_blank">woshenc 发表于 2025-3-14 16:35</a>
+
+一代主人公的魂之纹章是不是除去门之纹章外系列中最强力的</blockquote>
+和五行还有太阳之类的差不多都能大范围杀伤吧，罚记得也能，那就看副作用了，五行好像是没明显副作用的，但会看到世界末日，太阳是会精神狂乱，司生死是会引来战乱和吸食身边人的灵魂，都是折磨人内心的，很难说哪个最强力吧.....
+
+
+*****
+
+####  牧月萌  
+##### 388#       发表于 2025-3-15 10:34
+
+噬魂和罚之纹章按设定应该大差不差吧，就是游戏数值一个天一个地，罚之纹章要到4代外传里才好用
+
+游戏里真纹章数值填的还是普遍太保守了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+主角们还都要跟剧情进度才解锁魔法
+单论好用程度我感觉是3代真雷最强<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  woshenc  
+##### 389#       发表于 2025-3-15 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67658926&amp;ptid=2090186" target="_blank">牧月萌 发表于 2025-3-15 10:34</a>
+
+噬魂和罚之纹章按设定应该大差不差吧，就是游戏数值一个天一个地，罚之纹章要到4代外传里才好用
+
+游戏里真 ...</blockquote>
+我主要说的是设定上的强度
+
+比如剑盾纹章，感觉很古老，实际好像没什么用
+
