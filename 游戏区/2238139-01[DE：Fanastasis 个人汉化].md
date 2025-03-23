@@ -1580,3 +1580,15 @@ z确定  x取消  
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+*****
+
+####  有点神奇  
+##### 151#       发表于 2025-3-20 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67497667&amp;ptid=2238139" target="_blank">woshenc 发表于 2025-2-23 13:11</a>
+
+感谢楼主分享
+
+想问下这个游戏除去alt+enter全屏之外，有办法调节窗口大小吗？ ...</blockquote>
+按F5可以切换多种窗口大小
+

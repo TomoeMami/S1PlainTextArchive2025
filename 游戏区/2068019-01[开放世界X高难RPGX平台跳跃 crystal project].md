@@ -1563,3 +1563,68 @@ steam版本有中文汉化的创意工坊。
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
 
+*****
+
+####  Vladimeow  
+##### 132#       发表于 2025-3-19 10:53
+
+刚开始玩，发现有的职业（包括一些mode职业）的技能树里有一些技能点信息没有，也没显示需要多少LP学习，这种是还没做完吗还是啥？顺便探图好爽，跳到各种新区域真的很有成就感，独一档了
+
+*****
+
+####  blackll7  
+##### 133#         楼主| 发表于 2025-3-19 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67684658&amp;ptid=2068019" target="_blank">Vladimeow 发表于 2025-3-19 10:53</a>
+
+刚开始玩，发现有的职业（包括一些mode职业）的技能树里有一些技能点信息没有，也没显示需要多少LP学习，这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你打了汉化吧，汉化跟不上mod更改的，必定有空的没翻的地方，打mod职业还是英语吧。
+
+
+*****
+
+####  Vladimeow  
+##### 134#       发表于 2025-3-19 11:11
+
+<blockquote>blackll7 发表于 2025-3-19 10:55
+你打了汉化吧，汉化跟不上mod更改的，必定有空的没翻的地方，打mod职业还是英语吧。 ...</blockquote>
+感觉应该不是汉化问题，因为一般技能你点一下会显示没学好前置技能啥的，我说的这种是提示啥技能暂不可用啥的，是不是需要职业升级啥的，我晚上回去截个图（
+
+
+*****
+
+####  blueelf  
+##### 135#       发表于 2025-3-19 11:34
+
+主城内留言板上的内容没汉化真是很要命，动不动就不清楚下一步该干什么了
+
+
+*****
+
+####  komoechan  
+##### 136#       发表于 2025-3-19 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67684658&amp;ptid=2068019" target="_blank">Vladimeow 发表于 2025-3-19 10:53</a>
+刚开始玩，发现有的职业（包括一些mode职业）的技能树里有一些技能点信息没有，也没显示需要多少LP学习，这 ...</blockquote>
+需要解锁，但是（藏）在什么地方解锁就不好说了
+
+
+*****
+
+####  Vladimeow  
+##### 137#       发表于 2025-3-20 08:24
+
+<blockquote>komoechan 发表于 2025-3-19 12:09
+需要解锁，但是（藏）在什么地方解锁就不好说了</blockquote>
+感谢感谢，这游戏藏的东西真的有点多，不过探索太爽了
+
+
+*****
+
+####  black1991518  
+##### 138#       发表于 2025-3-20 08:55
+
+大多数职业mod都会在简介里告知水晶位置，
+
+以及就我个人打了几十个职业mod的体验下来看，大部分作者都不会把水晶藏在犄角旮旯里，甚至绝大多数都是主线探索的路上就能解锁了
+
