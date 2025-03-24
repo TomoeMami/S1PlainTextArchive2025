@@ -590,3 +590,88 @@ npc白吃我一个补剂demo里也没后续内容了 气晕
 
 换装备麻烦的一B，懒得一把把试拿把泼水枪过了。感觉还行，地图设计什么的还过得去，就是打完没boss放个pv太搞了。
 
+*****
+
+####  不灭的旋律  
+##### 57#       发表于 2025-3-19 13:55
+
+4月24日发售，2160日元带设定集。发售得太快价格低有不好的预感。
+
+看了下这楼评价很高啊是我打开方法不对吗？试玩版被二足的高锁定打成筛子
+
+
+*****
+
+####  半分宅  
+##### 58#       发表于 2025-3-20 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685985&amp;ptid=2158861" target="_blank">不灭的旋律 发表于 2025-3-19 01:55</a>
+
+4月24日发售，2160日元带设定集。发售得太快价格低有不好的预感。
+
+看了下这楼评价很高啊是我打开方法不对吗 ...</blockquote>
+二足锁定削弱之前，站桩对射必死，要充分发挥铠灵的机动能力进行回避。削过之后要容易很多。
+
+近战手感奇怪一开始也被喷，不过后来摸到诀窍加上二足削弱，用起来就舒服一些。我主要还是用来砍四足。
+
+
+*****
+
+####  Xerxes_2  
+##### 59#       发表于 2025-3-20 14:19
+
+看了封面图加上是 N+ 出品以为有 ryona 兴致冲冲得玩了，demo 通关大失所望
+
+—— 来自 Google Pixel 9 Pro, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  madcow  
+##### 60#       发表于 2025-3-20 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67685985&amp;ptid=2158861" target="_blank">不灭的旋律 发表于 2025-3-19 13:55</a>
+
+4月24日发售，2160日元带设定集。发售得太快价格低有不好的预感。
+
+看了下这楼评价很高啊是我打开方法不对吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这价格才配这便宜画面便宜建模（还有脚填的数值
+
+一般通过正常玩家看到画面和建模就被吓跑了
+
+
+*****
+
+####  MkChang  
+##### 61#       发表于 2025-3-20 16:20
+
+这卖相要是定价还高卖给谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  不灭的旋律  
+##### 62#       发表于 2025-3-20 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67693365&amp;ptid=2158861" target="_blank">Xerxes_2 发表于 2025-3-20 14:19</a>
+
+看了封面图加上是 N+ 出品以为有 ryona 兴致冲冲得玩了，demo 通关大失所望
+
+—— 来自 Google Pixel 9 Pro ...</blockquote>
+试玩版就有吃寄生虫自决了啊。虐妹肯定有太重口的就别想了
+
+
+*****
+
+####  madcow  
+##### 63#       发表于 2025-3-21 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67693365&amp;ptid=2158861" target="_blank">Xerxes_2 发表于 2025-3-20 14:19</a>
+
+看了封面图加上是 N+ 出品以为有 ryona 兴致冲冲得玩了，demo 通关大失所望
+
+—— 来自 Google Pixel 9 Pro ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你选一坦克足或者四脚，直接小腿砍掉
+
