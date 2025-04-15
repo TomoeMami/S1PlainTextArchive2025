@@ -1185,3 +1185,148 @@ RPG和ACT的区别~~
 
 看流程多少，流程长能接受
 
+*****
+
+####  红魔馆的糖  
+##### 126#       发表于 2025-3-23 23:22
+
+把demo流程和附加的boss挑战模式打了，说实话作为一个穷比游戏来说真的还行，至少设计上没啥大问题。
+
+最大的问题应该是作为二次元游戏没日配<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  高妹控  
+##### 127#       发表于 2025-3-23 23:47
+
+demo暂时还没空打，看评价很不乐观啊（都低配噬血代码了）
+
+*****
+
+####  红魔馆的糖  
+##### 128#       发表于 2025-3-23 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717379&amp;ptid=2168791" target="_blank">高妹控 发表于 2025-3-23 23:47</a>
+demo暂时还没空打，看评价很不乐观啊（都低配噬血代码了）</blockquote>
+主要太穷了，确实是各种纬度维度上的低配噬血代码。不过对于我这种很喜欢噬血代码的倒是可以期待一下后续的通关评价<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  高妹控  
+##### 129#       发表于 2025-3-23 23:58
+
+ 本帖最后由 高妹控 于 2025-3-24 00:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67717389&amp;ptid=2168791" target="_blank">红魔馆的糖 发表于 2025-3-23 23:49</a>
+主要太穷了，确实是各种纬度维度上的低配噬血代码。不过对于我这种很喜欢噬血代码的倒是可以期待一下后续 ...</blockquote>
+听说会出国行实体盘，貌似199？那倒是可以宽容些，MC70分以上可以支持一张
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  blackll7  
+##### 130#       发表于 2025-3-24 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=64649872&amp;ptid=2168791" target="_blank">nage560 发表于 2024-4-19 14:28</a>
+
+场景一看就看出借鉴了blame，美术的确不错，啥时候谁真做个还原blame场景的游戏就好了。 ...</blockquote>
+Bleak Faith: Forsaken
+
+
+*****
+
+####  grox133  
+##### 131#       发表于 2025-3-24 19:26
+
+130要什么自行车，有demo10倍体量就行，隔壁卡赞3倍价格
+
+
+*****
+
+####  红魔馆的糖  
+##### 132#       发表于 2025-3-24 19:44
+
+这价格确实不错，支持一个首发好了
+
+
+*****
+
+####  whzfjd  
+##### 133#       发表于 2025-3-24 22:20
+
+ 本帖最后由 whzfjd 于 2025-3-24 22:24 编辑 
+
+感觉主角还是太搓了点，你像小魔女诺贝塔场景没有这个好，但就是买的心安理得<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+不知道 npc 和 boss 们怎么样，看到是有点人样，但也不多
+
+
+*****
+
+####  缪斯替  
+##### 134#       发表于 2025-3-25 09:57
+
+才发现没有日配……有点犹豫了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  fbman  
+##### 135#       发表于 2025-3-25 11:09
+
+这作有盘吗。还挺喜欢它那个一片白的封面的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  红魔馆的糖  
+##### 136#       发表于 2025-3-25 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67725957&amp;ptid=2168791" target="_blank">缪斯替 发表于 2025-3-25 09:57</a>
+
+才发现没有日配……有点犹豫了
+
+—— 来自 鹅球 v3.3.96</blockquote>
+我本来也是因为没日配想一票否决的，然后切到英配感觉还行，是那种模仿魂系的配音风格
+
+
+*****
+
+####  iewnay  
+##### 137#       发表于 2025-3-25 11:53
+
+看这名字还以为有坦克开呢。
+
+
+*****
+
+####  zzy516232108  
+##### 138#       发表于 2025-3-25 14:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在纠结是买这个玩还是买dnf卡赞
+
+
+*****
+
+####  食粪者  
+##### 139#       发表于 2025-3-25 17:13
+
+和嗜血代码一样玩久了就头晕
+
+
+*****
+
+####  红魔馆的糖  
+##### 140#       发表于 2025-3-25 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67727853&amp;ptid=2168791" target="_blank">zzy516232108 发表于 2025-3-25 14:50</a>
+我在纠结是买这个玩还是买dnf卡赞</blockquote>
+根据我两个demo都玩了的经验，卡赞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
