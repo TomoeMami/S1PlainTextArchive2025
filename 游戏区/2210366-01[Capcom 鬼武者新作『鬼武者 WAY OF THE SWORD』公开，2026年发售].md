@@ -1671,3 +1671,12 @@ PV1：
 
 别的没了，太普通了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 172#         楼主| 发表于 2025-4-18 22:21
+
+Fami 通《鬼武者 Way of the Sword》访谈：体验武藏流战斗
+[https://gouhuo.qq.com/mainpage/d ... 402101402_KItNBd4Zb](https://gouhuo.qq.com/mainpage/detail?storyid=0_20250402101402_KItNBd4Zb)
+[https://www.famitsu.com/article/202503/37453](https://www.famitsu.com/article/202503/37453)
+
