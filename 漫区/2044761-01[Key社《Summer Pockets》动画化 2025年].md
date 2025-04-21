@@ -937,3 +937,66 @@ KEY社作品动画化第一个OP都是直接用游戏OP的
 
 草了我都忘了key社已经卖身给南极贱畜了
 
+*****
+
+####  Piano-Forest  
+##### 80#         楼主| 发表于 2025-4-17 22:07
+
+キャスト手書きコメント・スタッフインタビュー掲載《スペシャル小冊子》公開
+[https://summerpockets-anime.jp/news/157/](https://summerpockets-anime.jp/news/157/)
+
+PV3：[https://youtu.be/rAb0zmpiJeE](https://youtu.be/rAb0zmpiJeE)
+
+🦋━━━━━━━━━━━ 
+
+TVアニメ『Summer Pockets』
+
+新規ビジュアル公開！！
+
+━━━━━━━━━━━🦋
+
+アニメ第3話の放送に先駆けて
+
+新規ビジュアルを解禁いたしました！🎉
+
+TVアニメ『Summer Pockets』第3話
+
+「海賊船と少女」
+
+4月21日（月）23時30分より放送！
+<img src="https://p.sda1.dev/23/9d3906d7bcf5c17ed02103d97c30a858/20250417_220631.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  于干  
+##### 81#       发表于 2025-4-17 22:39
+
+很有古早gal改的味道，对了
+
+
+*****
+
+####  whzfjd  
+##### 82#       发表于 2025-4-18 01:03
+
+对暑假的描述还挺有感触的<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moras2694  
+##### 83#       发表于 2025-4-18 01:46
+
+真有点喜欢umi
+
+
+*****
+
+####  无动于衷  
+##### 84#       发表于 2025-4-18 08:29
+
+<blockquote>wolf1997 发表于 2025-3-16 04:25
+KEY社作品动画化第一个OP都是直接用游戏OP的</blockquote>
+东映版kanon：当我不存在？
+
