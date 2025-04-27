@@ -3520,3 +3520,256 @@ https://www.bilibili.com/video/BV1vQwReCEvE
 
 博克斯·瑞巴
 
+*****
+
+####  Piano-Forest  
+##### 364#         楼主| 发表于 2025-4-18 00:04
+
+【《饿狼传说：群狼之城》萨尔瓦多·加纳奇 x 大张正己 特别MV】 
+[https://b23.tv/gz52uih](https://b23.tv/gz52uih)
+
+
+*****
+
+####  chdhdhd  
+##### 365#       发表于 2025-4-18 09:17
+
+S1关的太久，我都没时间概念了，原来已经出了啊
+
+
+*****
+
+####  GameTheory  
+##### 366#       发表于 2025-4-18 12:33
+
+24号发售吧？
+
+
+*****
+
+####  Piano-Forest  
+##### 367#         楼主| 发表于 2025-4-18 20:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67735790&amp;ptid=2085684" target="_blank">Piano-Forest 发表于 2025-4-18 00:04</a>
+
+【《饿狼传说：群狼之城》萨尔瓦多·加纳奇 x 大张正己 特别MV】 
+
+https://b23.tv/gz52uih ...</blockquote>
+[https://x.com/G1_BARI/status/1913197364028014716](https://x.com/G1_BARI/status/1913197364028014716)
+
+ゲームの発売を記念して何処かのタイミングで、今回のMVの絵コンテや原画、イメージボードを皆さまに公開出来ないかな‥？
+
+ポップアップストア形式で🤖⭐️🐺
+<img src="https://p.sda1.dev/23/e4c14df1504b5b2ad10b810015b4a053/20250418_205554.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/23/3511f6d3eb470949be02aab973c2eec0/20250418_205555.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/yoshiyama_yuu/status/1913082449166504447](https://x.com/yoshiyama_yuu/status/1913082449166504447)
+
+餓狼伝説cotw  MV
+
+少しお手伝いしました。
+
+プリチャとテリーが描けて楽しかったです🐸🤛
+<img src="https://p.sda1.dev/23/98aacc972eb054633161460f430092e2/20250418_205602.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  大十字紅朔  
+##### 368#       发表于 2025-4-21 19:21
+
+据说steam销量直接干到第一了，C罗的力量有点恐怖
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+
+*****
+
+####  天剑流星  
+##### 369#       发表于 2025-4-21 19:33
+
+这剧情续的，太能包饺子了，我们南镇怎么会有坏人呢
+
+—— 来自 Xiaomi 2407FRK8EC, Android 14, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  jackyhuang  
+##### 370#       发表于 2025-4-21 20:52
+
+【【饿狼传说 群狼之城】比利结局CG-哔哩哔哩】 https://b23.tv/kTag3wi
+填旧坑，挖新坑
+
+—— 来自 Sony XQ-AT72, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  花枝鱿鱼面  
+##### 371#       发表于 2025-4-23 07:49
+
+ 本帖最后由 花枝鱿鱼面 于 2025-4-23 07:50 编辑 
+
+【【群狼之城】马可无限连-哔哩哔哩】 https://b23.tv/exqTl1E
+【狼城又一个无限连-哔哩哔哩】 https://b23.tv/IFj5z9u
+
+—— 来自 HUAWEI VRD-W10, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  demon6666  
+##### 372#       发表于 2025-4-23 16:56
+
+<blockquote>花枝鱿鱼面 发表于 2025-4-23 07:49
+【【群狼之城】马可无限连-哔哩哔哩】 https://b23.tv/exqTl1E
+
+【狼城又一个无限连-哔哩哔哩】 https://b23 ...</blockquote>
+不愧是SNK,总能整出花活
+
+
+*****
+
+####  肥胖的道奇兔  
+##### 373#       发表于 2025-4-24 09:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67744528&amp;ptid=2085684" target="_blank">jackyhuang 发表于 2025-4-21 20:52</a>
+
+【【饿狼传说 群狼之城】比利结局CG-哔哩哔哩】 https://b23.tv/kTag3wi
+
+填旧坑，挖新坑</blockquote>
+不知道当年有没有想这么多，但是至少把以前的坑都圆上了
+
+
+*****
+
+####  风夏  
+##### 374#       发表于 2025-4-24 11:21
+
+我了个石油爹, 直接干到史上奖金最高的格斗游戏赛事了
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+
+*****
+
+####  adretyu67.  
+##### 375#       发表于 2025-4-24 11:30
+
+石油爹又是c罗又是250w刀比赛，算是够给脸了
+
+
+*****
+
+####  eilot  
+##### 376#       发表于 2025-4-24 15:00
+
+ 本帖最后由 eilot 于 2025-4-24 15:02 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67750822&amp;ptid=2085684" target="_blank">肥胖的道奇兔 发表于 2025-4-24 09:15</a>
+
+不知道当年有没有想这么多，但是至少把以前的坑都圆上了</blockquote>
+基本上多個大坑都是當年餓狼線留下來，和KOF線無關，雖然龍虎眾都有間接客串出場但影響不大(本身就是巴西極限流的大叔)，圓了整條餓狼劇情，剩下都只是再後日的後日談的小故事
+
+而且大家結局都是好人，
+
+如兄終於願意和妹相應，知道母親被殺原因，最後聯手對打親爹及和解...
+
+TERRY和ROCK兩個結局略有不同，傑斯以溫和語氣叫ROCK走自己的路，根本就不像他...
+
+MARY有點是弱氣，感情FREEMAN有機會出場? 而B JANET就非常強氣，
+
+
+*****
+
+####  肥胖的道奇兔  
+##### 377#       发表于 2025-4-24 15:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752014&amp;ptid=2085684" target="_blank">eilot 发表于 2025-4-24 15:00</a>
+
+基本上多個大坑都是當年餓狼線留下來，和KOF線無關，雖然龍虎眾都有間接客串出場但影響不大(本身就是巴西 ...</blockquote>
+而且他们这些50后都没老，但是考虑到11,14，15那个NBC版的罗伯特（32岁状态），恐怕罗伯特要露脸会非常老气
+
+----------------------------------------------
+牙刀兄妹的剧情我没想到，因为我以前还设想过牙王在这个故事里面有重要的剧情，所以一定是杀母凶手
+
+
+*****
+
+####  syndrome2032  
+##### 378#       发表于 2025-4-24 15:45
+
+牙刀家事明显改完了。
+
+当年牙王是往反派boss塑造的。现在和牙刀一起成了修炼废人
+
+
+*****
+
+####  肥胖的道奇兔  
+##### 379#       发表于 2025-4-24 16:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752221&amp;ptid=2085684" target="_blank">syndrome2032 发表于 2025-4-24 15:45</a>
+牙刀家事明显改完了。
+
+当年牙王是往反派boss塑造的。现在和牙刀一起成了修炼废人 ...</blockquote>
+有人认为拳皇2003极限流剧情里面偷袭琢磨的就是牙王，这应该和11的队伍故事有关系
+
+—— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  syndrome2032  
+##### 380#       发表于 2025-4-24 17:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752448&amp;ptid=2085684" target="_blank">肥胖的道奇兔 发表于 2025-4-24 16:45</a>
+有人认为拳皇2003极限流剧情里面偷袭琢磨的就是牙王，这应该和11的队伍故事有关系
+
+—— 来自 Xiaomi 231 ...</blockquote>
+牙刀在kof的目的又没变过，接的mow剧情。
+
+不过狼城结局更像是快进到龙虎一家耍宝阶段了。父子大战直接跳过，尤莉从”那个人是你爹”直接快进到2的天降武学奇才了。
+
+
+*****
+
+####  肥胖的道奇兔  
+##### 381#       发表于 2025-4-24 17:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752501&amp;ptid=2085684" target="_blank">syndrome2032 发表于 2025-4-24 17:01</a>
+牙刀在kof的目的又没变过，接的mow剧情。
+
+不过狼城结局更像是快进到龙虎一家耍宝阶段了。父子大战直接跳 ...</blockquote>
+比起来还是牙刀那边剧情比较合适
+
+—— 来自 Xiaomi 23117RK66C, Android 14上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  yanhan0410  
+##### 382#       发表于 2025-4-24 17:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67751273&amp;ptid=2085684" target="_blank">风夏 发表于 2025-4-24 12:21</a>
+我了个石油爹, 直接干到史上奖金最高的格斗游戏赛事了</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">冠军搞不好是C罗亲自颁奖
+
+
+*****
+
+####  风夏  
+##### 383#       发表于 2025-4-24 18:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752565&amp;ptid=2085684" target="_blank">yanhan0410 发表于 2025-4-24 17:19</a>
+冠军搞不好是C罗亲自颁奖</blockquote>
+有一说一，snk的比赛在美国举办，瓦罗应该没法入境美帝
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
