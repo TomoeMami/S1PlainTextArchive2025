@@ -3703,3 +3703,29 @@ Z社新作来了
 
 旧招牌 Zachtronics 之前是已经卖给一个叫 Alliance 的母公司不自负盈亏但现在可能用不了了，这回的新招牌 Coincidence 官网上直接自我定性成灵活的商业框架（flexible business framework）搞上合伙制了也是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  BRAVADO  
+##### 254#       发表于 2025-4-23 17:33
+
+推箱子游戏节开始了，名作基本都打折了。
+
+*****
+
+####  BRAVADO  
+##### 255#       发表于 2025-4-23 17:37
+
+另外可能无关主题，香肠卷的作者Stephen Lavelle居然做了个叫Mask Quest的平台跳跃游戏，有人品鉴吗？
+
+[https://store.steampowered.com/app/1127660/Mask_Quest/](https://store.steampowered.com/app/1127660/Mask_Quest/)
+
+
+*****
+
+####  库德里尔  
+##### 256#       发表于 2025-4-24 15:45
+
+趁此机会玩了玩抓兔子，现在抓了三十七只小兔子。
+
+这游戏赶兔子真好玩啊，20只小兔子开地图感觉才是游戏的开始。
+
