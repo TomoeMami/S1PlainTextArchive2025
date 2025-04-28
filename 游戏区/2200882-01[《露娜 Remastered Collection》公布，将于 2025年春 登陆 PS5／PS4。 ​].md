@@ -850,3 +850,184 @@ nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这�
 
 ----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.44)
 
+*****
+
+####  ds2324ds2  
+##### 79#         楼主| 发表于 2025-4-18 16:47
+
+价格高了点
+
+
+*****
+
+####  成濑未亚  
+##### 80#       发表于 2025-4-18 17:00
+
+问问有比较全的收集攻略吗
+
+
+*****
+
+####  tansapple  
+##### 81#       发表于 2025-4-18 21:59
+
+价格解锁了，360还是有点小贵，等打折了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  crosz1985  
+##### 82#       发表于 2025-4-18 22:00
+
+实体版400本来还说等steam便宜点，结果还是这么贵
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  月光乱舞  
+##### 83#       发表于 2025-4-18 22:23
+
+这价格实在有点劝退了，等打折吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 84#       发表于 2025-4-18 22:54
+
+<blockquote>月光乱舞 发表于 2025-1-15 16:50
+nds那部走路流汗掉血的创世纪看来是要黑历史了吧，除了这代当年也只在gba上玩过初代，玩得是挺开心的，但是 ...</blockquote>
+感动一百万人的其实是二代
+
+
+*****
+
+####  火红之眼  
+##### 85#       发表于 2025-4-19 05:29
+
+先把1代搞定了，攻略的话看这个就行[https://wikiwiki.jp/lunar-wiki/](https://wikiwiki.jp/lunar-wiki/) 两作的都有，时限要素全都有标出来，1代比较阴间就开局借30块和船上买两肥皂（另外两肥皂一个主线一个红宝箱），其他的大多是强力饰品前置和照片的收集时限很短。
+
+<strong>本帖子中包含更多资源</strong>
+您需要 登录 才可以下载或查看，没有账号？立即注册 
+
+×
+
+
+*****
+
+####  Kojimaru  
+##### 86#       发表于 2025-4-19 17:35
+
+只收集和打奖杯看rpgsite的全流程攻略也不错[https://www.rpgsite.net/guide/17 ... r-story-walkthrough](https://www.rpgsite.net/guide/17159-lunar-remastered-collection-guide-lunar-silver-star-story-walkthrough)
+
+
+*****
+
+####  widder  
+##### 87#       发表于 2025-4-19 20:25
+
+还是浪漫沙加2的重置最有诚意
+
+
+*****
+
+####  新HGCG  
+##### 88#       发表于 2025-4-19 20:41
+
+没有实体版吗
+
+
+*****
+
+####  医生狼多  
+##### 89#       发表于 2025-4-20 02:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67739385&amp;ptid=2200882" target="_blank">新HGCG 发表于 2025-4-19 20:41</a>
+没有实体版吗</blockquote>
+有 出货很少直接断货发行商在滑轨了
+
+
+*****
+
+####  wolfwood  
+##### 90#       发表于 2025-4-20 11:28
+
+冷饭这个价格，只能等打折了
+
+
+*****
+
+####  等等等灯等灯  
+##### 91#       发表于 2025-4-22 09:45
+
+pc上有了吗？
+
+
+*****
+
+####  等等等灯等灯  
+##### 92#       发表于 2025-4-22 09:50
+
+没有搜索真麻烦啊，只能一页页翻有没有专楼
+
+
+*****
+
+####  2082082012  
+##### 93#       发表于 2025-4-22 18:52
+
+Steam上360元后面打折都要掂量一下<img src="https://static.stage1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  MobileMeowbot  
+##### 94#       发表于 2025-4-24 18:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67745393&amp;ptid=2200882" target="_blank">等等等灯等灯 发表于 2025-4-22 09:50</a>
+
+没有搜索真麻烦啊，只能一页页翻有没有专楼</blockquote>
+关站前的专楼可以地址栏搜索露娜 site:saraba1st.com复制代码再手动把saraba改成stage
+
+
+*****
+
+####  Mephisto  
+##### 95#       发表于 2025-4-24 19:57
+
+诚意还不如幻水，做成psp那样倒也认了，结果冷饭都不加热就端上来卖海鲜的价格，那豆丁大的像素人物看得我都笑了，游戏是送的，400卖的是情怀
+
+
+*****
+
+####  等等等灯等灯  
+##### 96#       发表于 2025-4-25 06:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67752836&amp;ptid=2200882" target="_blank">MobileMeowbot 发表于 2025-4-24 18:51</a>
+
+关站前的专楼可以地址栏搜索再手动把saraba改成stage</blockquote>
+这种方法漏的很多，比如我记得有个用分享PCem封装老游戏的专楼这种方法就搜不到（当然也可能我记错标题了）
+
+
+*****
+
+####  哎哟卧槽了  
+##### 97#       发表于 2025-4-25 08:40
+
+<blockquote>Mephisto 发表于 2025-4-24 19:57
+诚意还不如幻水，做成psp那样倒也认了，结果冷饭都不加热就端上来卖海鲜的价格，那豆丁大的像素人物看得我 ...</blockquote>
+這遊戲的情懷不值400...有多少人以前真能玩上這遊戲，所謂“感動百萬人”也就是一種趕集式宣傳。而且遊戲玩法放今天也沒有特別突出的地方。
+
+這樣炒飯賣400我還願意買的**rpg只有超時空之鑰…
+
+
+*****
+
+####  linhaitora  
+##### 98#       发表于 2025-4-25 13:29
+
+不如去PSN买官方模拟器？
+
