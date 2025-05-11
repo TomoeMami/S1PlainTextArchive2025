@@ -4469,3 +4469,23 @@ zhez海底隧道迷宫真的是太复杂了，看了网上的地图还是觉得�
 
 总之，这游戏给我的感受是，有特色，地图方面十分突出，但缺点也很明显。
 
+*****
+
+####  莫名奇妙封ID  
+##### 397#       发表于 2025-5-8 10:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67618775&amp;ptid=2246453" target="_blank">DARILBALDE 发表于 2025-3-10 10:38</a>
+三兄弟，第一个在下水道入口传送点往阿尔卡姆平原走，第二个在达卡斯地下墓地传送点往西北方向，第三个是 ...</blockquote>
+问下，三个处刑人都干掉了，但是硬币只有两个，我是遇到 bug 了还是哪里出错了。
+
+
+*****
+
+####  DDWarrior  
+##### 398#       发表于 2025-5-8 14:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67792282&amp;ptid=2246453" target="_blank">莫名奇妙封ID 发表于 2025-5-8 10:33</a>
+
+问下，三个处刑人都干掉了，但是硬币只有两个，我是遇到 bug 了还是哪里出错了。 ...</blockquote>
+看看是不是漏了平原那位的硬币？硬币不在他身上，在平原入口往南走的房子那边
+
