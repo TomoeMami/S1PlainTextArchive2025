@@ -1394,3 +1394,26 @@ at和mt买车的时候就要选好，后期好像是没法改的。
 
 ×
 
+*****
+
+####  Tnsbilws  
+##### 72#         楼主| 发表于 2025-5-8 15:23
+
+这周开发日志发了，比较令人新鲜的180敞篷之外，SR20外加改装的引擎模型都做好了，RB25也正式制作中，一部分车也开始做车架模型了
+
+<img src="https://img.stage1st.com/forum/202505/08/152229o728z7odubm7bdd8.jpg" referrerpolicy="no-referrer">
+
+<strong>1648ebfb1a130103b9527cb38eda7927.jpg</strong> (359.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 15:22 上传
+
+<img src="https://img.stage1st.com/forum/202505/08/152229mfgmhzow1wxmngkm.png" referrerpolicy="no-referrer">
+
+<strong>fe5eb93a179267dde59806c5db4cccf2.png</strong> (463.53 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-8 15:22 上传
+
