@@ -7614,3 +7614,675 @@ ep8，独角兽负责回意外的很不错；ep9，大小姐写了个非常奇�
 
 2025-4-28 21:42 上传
 
+*****
+
+####  新HGCG  
+##### 815#       发表于 2025-5-2 11:32
+
+<img src="https://img.stage1st.com/forum/202505/02/113220lttccq92zywyym00.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (37.36 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-2 11:32 上传
+
+
+*****
+
+####  sheshiro  
+##### 816#       发表于 2025-5-2 19:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67774107&amp;ptid=2208663" target="_blank">新HGCG 发表于 2025-5-2 11:32</a></blockquote>
+满开喷了，不要勇者部！<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  咲良うた  
+##### 817#       发表于 2025-5-3 11:03
+
+第13話　フレッフレッ！キラキライト！
+
+脚本：山田由香
+
+演出：村上貴之
+
+作画監督：青山充
+
+美術：戸杉奈津子
+
+ある日の朝、登校したうた（CV.松岡美里）は、クラスメイトでバレーボール部の新橋わかばを見かけて声をかける。しかしわかばは、バレー部のエースでもあり、校内でモテると有名な 3年の翔太先輩を見つめていて、うたには気づかない。その日のホームルームで、近く開催されるクラス対抗の球技大会への出場種目を決めるうたたち。うたとなな（CV.髙橋ミナミ）は、女子バレーに出場することになり、わかばも女子バレーのチームに入る。翌日の放課後、うたたちが大会に向けて練習している途中、わかばは翔太先輩に恋をしていること、そして先輩がもうすぐ転校するらしいことを明かし、球技大会に優勝したら告白すると宣言する。迎えた球技大会当日。うたたちのチームは勝ち進み──。
+<img src="https://files.catbox.moe/1m6yel.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/rbv4k0.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/j503dx.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/ocr6of.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sakuranosibe  
+##### 818#       发表于 2025-5-4 07:42
+
+<img src="https://img.stage1st.com/forum/202505/04/073901oix3xw45gzu40xj4.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5612.jpeg</strong> (122.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-4 07:39 上传
+
+<img src="https://img.stage1st.com/forum/202505/04/073901br3iyi3rjmkrkk7y.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5614.jpeg</strong> (113.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-4 07:39 上传
+
+<img src="https://img.stage1st.com/forum/202505/04/073901lskjjodijzsqnbyb.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5613.jpeg</strong> (133.48 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-5-4 07:39 上传
+
+住在品川的王子酒店 在个大坡道上，早上下坡去品川站的路上看到好多cos成q娃的幼女在往坡上走 查了一下发现酒店这两天居然有q娃show 感觉亏了一个亿
+
+https://www.princehotels.co.jp/shintakanawa/hero/
+
+ps.路上幼女们cos 粉蓝紫的比例是1:0.01:10
+
+
+*****
+
+####  himfsz  
+##### 819#       发表于 2025-5-4 07:47
+
+传统磁铁脸
+
+
+*****
+
+####  jaewoongh_  
+##### 820#       发表于 2025-5-4 08:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67779040&amp;ptid=2208663" target="_blank">sakuranosibe 发表于 2025-5-4 07:42</a>
+
+住在品川的王子酒店 在个大坡道上，早上下坡去品川站的路上看到好多cos成q娃的幼女在往坡上走 查了一下 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">令人意外的又影薄了，怎么回事呢
+
+*****
+
+####  jaewoongh_  
+##### 821#       发表于 2025-5-4 08:03
+
+表白镜头+转场是古家阳子？水粉风转场还挺好看
+
+青山大爷这集的发挥好好，泪目了，果然大家都喜欢bg（不是）
+
+
+*****
+
+####  咲良うた  
+##### 822#       发表于 2025-5-4 08:07
+
+第 13 集的 TVer 源（含日字）：magnet:?xt=urn:btih:2a81e66fdad4b9eeec3081ae9ac9b4d6ddfa278e
+
+
+*****
+
+####  新HGCG  
+##### 823#       发表于 2025-5-4 12:06
+
+脚踢排球的IDOL是屑
+
+
+*****
+
+####  himfsz  
+##### 824#       发表于 2025-5-4 13:28
+
+<blockquote>新HGCG 发表于 2025-5-4 12:06
+脚踢排球的IDOL是屑</blockquote>
+排球不是可以用脚吗
+
+
+*****
+
+####  我吃诗人  
+##### 825#       发表于 2025-5-4 16:28
+
+一想到接下来一个月都是日常回，似乎也不是那么难以接受了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哎偶q它确实有活啊
+
+md凯特桑来刷什么存在感难蚌<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这银兽就该这么写啊，第8集写的是个啥
+
+反派的走向完全不能细想<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉会很偶q式幽默的处理了
+
+哎没有uta小姐的sololive看我要似了，三人大招是ed真不是人啊
+
+
+*****
+
+####  leleq  
+##### 826#       发表于 2025-5-4 17:22
+
+继续带货，别说带货算是正经的IDOL工作了<img src="https://static.stage1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+若叶：我爽快多了
+
+黄大力：你们有完没完啊<img src="https://static.stage1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  粉儿alice  
+##### 827#       发表于 2025-5-4 18:40
+
+讲个笑话这几年q娃写好的反派 已经是21年的热带了<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  渡鸦骑士  
+##### 828#       发表于 2025-5-4 19:09
+
+偶像是不可以恋爱的，这男偶像却说保密<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+而且刷新频率也太高了，你不用跑现场的嘛<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jaewoongh_  
+##### 829#       发表于 2025-5-4 22:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780149&amp;ptid=2208663" target="_blank">leleq 发表于 2025-5-4 17:22</a>
+
+继续带货，别说带货算是正经的IDOL工作了
+
+若叶：我爽快多了</blockquote>
+画q版和演艺毕竟是青山的舒适区
+
+
+*****
+
+####  1096beam  
+##### 830#       发表于 2025-5-4 22:44
+
+为什么当年食Qspicy的幼女COS率会巨大领先呢？
+
+
+*****
+
+####  Blackson  
+##### 831#       发表于 2025-5-4 23:07
+
+这反派三人组看起来完全是组曲那三笨蛋一样，估计后面会新增反派来上点压力(至少要给追加战士出场加点危机感)
+
+紫雨心相比奈奈和阿歌比起来性格活泼想法多，不难怪以她为中心的剧集和表现多，也可能是第10集的B Part剧情容易让幼女家长喜欢
+
+
+*****
+
+####  sakuranosibe  
+##### 832#       发表于 2025-5-5 06:02
+
+<img src="https://img.stage1st.com/forum/202505/05/060100jq3tt3wxto30w09o.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5335.jpeg</strong> (107.25 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 06:00 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/060100t2989468y76824rl.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5343.jpeg</strong> (107.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 06:01 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/060100n6o75o6oo7f756fz.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5346.jpeg</strong> (108.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 06:01 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/060100li1uifemlb2zfb8c.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5350.jpeg</strong> (85.01 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 06:01 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/060101jaswi2soddo6ws0i.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5351.jpeg</strong> (97.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 06:01 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/060101c431uld900p3a5k9.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5359.jpeg</strong> (107.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 06:01 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/060101mpe2fd3rud4yeeq2.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5365.jpeg</strong> (95.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 06:01 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/060101r5u999395rfi5h5m.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5375.jpeg</strong> (85.69 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 06:01 上传
+
+<img src="https://img.stage1st.com/forum/202505/05/060101lg2hvaffgihgnf0f.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5382.jpeg</strong> (102.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-5 06:01 上传
+
+东武百货在池袋西口
+
+西武百货在池袋东口
+
+
+*****
+
+####  sheshiro  
+##### 833#       发表于 2025-5-5 10:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67780373&amp;ptid=2208663" target="_blank">渡鸦骑士 发表于 2025-5-4 19:09</a>
+
+偶像是不可以恋爱的，这男偶像却说保密
+
+而且刷新频率也太高了，你不用跑现场的嘛 ...</blockquote>
+可能是田中<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我吃诗人  
+##### 834#       发表于 2025-5-5 13:36
+
+想象了一下起床时被人拿着应援棒喊干巴嘞感觉会羞愧至死<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  codezwei  
+##### 835#       发表于 2025-5-7 06:55
+
+<img src="https://img.stage1st.com/forum/202505/07/065428ia11hbza1s1zveb2.gif" referrerpolicy="no-referrer">
+
+<strong>15616gfsd.gif</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-7 06:54 上传
+
+
+*****
+
+####  jaewoongh_  
+##### 836#       发表于 2025-5-9 20:46
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是大家最喜欢的独角兽！
+
+<img src="https://img.stage1st.com/forum/202505/09/204558o0imvt2dcn99a9le.png" referrerpolicy="no-referrer">
+
+<strong>0DC51196FF4410D242BC7DEBCDB0CB67.png</strong> (510.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:45 上传
+
+<img src="https://img.stage1st.com/forum/202505/09/204558spt5eisptcj5fwsr.png" referrerpolicy="no-referrer">
+
+<strong>D50418CD94BDC9BFE2FD0C53724AFDA6.png</strong> (2.9 MB, 下载次数: 0)
+
+下载附件
+
+2025-5-9 20:45 上传
+
+14 给妈妈~来自阿心的消息~
+
+15 姐姐大人神魂颠倒大作战
+
+16 满开 特训 花道镇fes ​​​
+
+17 噗哩伦的决意，一起去闪亮王国
+
+18 你是谁？怦然心动了
+
+
+*****
+
+####  咲良うた  
+##### 837#       发表于 2025-5-10 11:06
+
+第14話　お母さんへ～こころからのメッセージ～
+
+脚本：稲葉央明
+
+演出：のもとゆうや
+
+作画監督：藤原未来夫
+
+美術：中林由貴
+
+母の日の朝、こころ（CV.高森奈津美）が目を覚ますと、こころの母は休日出勤で出かけるところだった。母を送り出し、商店街の花屋さんでカーネーションを買ったこころだが、メッセージカードに何を書こうか、と考え込む。休憩中の喫茶グリッターを訪れ、うた（CV.松岡美里）たちに「伝えたいことが多すぎてまとまらない」と相談するこころ。なな（CV.髙橋ミナミ）に「お母さんとの思い出で、いちばん心キュンキュンしたことを思い出してみたら？」と言われたこころは、街を歩きながら、保育園に通っていた頃、母が迎えに来てくれたことを思い出し、今日は自分が迎えに行こうと思いつく。夕方になり、駅前で待っていたこころは、母の姿を見つけて駆け出していく。しかしそこにザックリーがあらわれ、こころの母をマックランダーに閉じ込めてしまい──
+<img src="https://files.catbox.moe/y494cz.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/3cn6b3.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/gsikuw.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/q3emx6.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  modedd  
+##### 838#       发表于 2025-5-10 11:30
+
+是我的错觉还是kokoro的势头真的已经比小歌还要猛了（
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  codezwei  
+##### 839#       发表于 2025-5-10 12:29
+
+快进到紫毛捶地哭<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jaewoongh_  
+##### 840#       发表于 2025-5-10 13:15
+
+嚯嚯嚯，还有战败cg，夸脏哦
+
+
+*****
+
+####  粉儿alice  
+##### 841#       发表于 2025-5-10 13:33
+
+q娃母亲节回向来都是出神回的 然而狗大友就喜欢搞迫害 看纸片人掉小珍珠真开心<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我吃诗人  
+##### 842#       发表于 2025-5-10 14:23
+
+游泳池，万代捧起kkr，uta在旁边要死
+
+不知名的蓝毛骷髅在海底。jpg<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  modedd  
+##### 843#       发表于 2025-5-10 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67799946&amp;ptid=2208663" target="_blank">我吃诗人 发表于 2025-5-10 14:23</a>
+
+游泳池，万代捧起kkr，uta在旁边要死
+
+不知名的蓝毛骷髅在海底。jpg</blockquote>
+蓝.......毛？
+
+没什么印象啊，偶q有这种有这种角色来着吗（）
+
+
+*****
+
+####  jaewoongh_  
+##### 844#       发表于 2025-5-11 07:35
+
+其实一直以来有个疑问，赞助商里的梦与创造力是什么啊
+
+
+*****
+
+####  Mr.Giraffe  
+##### 845#       发表于 2025-5-11 07:52
+
+宝宝还是幼年丧父单亲家庭，母亲节特辑有点感动
+
+
+*****
+
+####  renkan119  
+##### 846#       发表于 2025-5-11 08:00
+
+剩下两不去陪自己妈妈过母亲节吗（
+
+*****
+
+####  modedd  
+##### 847#       发表于 2025-5-11 08:01
+
+奶奶：“那我呢”<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+这话有大家最喜欢的蓝色角色大显身手哦<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  jaewoongh_  
+##### 848#       发表于 2025-5-11 08:04
+
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">本来想大呼神回但仔细想想还是差了点什么，演出稍微有点没活，而且就非得带你那个b货……
+
+
+*****
+
+####  新HGCG  
+##### 849#       发表于 2025-5-11 08:16
+
+可可萝妈妈呸喽呸喽
+
+
+*****
+
+####  千恋万花  
+##### 850#       发表于 2025-5-11 08:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67801786&amp;ptid=2208663" target="_blank">jaewoongh_ 发表于 2025-5-11 07:35</a>
+
+其实一直以来有个疑问，赞助商里的梦与创造力是什么啊</blockquote>
+万代的口号
+
+<img src="https://img.stage1st.com/forum/202505/11/082538z8e9zg7z91el996y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (166.08 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-11 08:25 上传
+
+
+*****
+
+####  pokemon最爱  
+##### 851#       发表于 2025-5-11 10:12
+
+感觉这集是放在前中期甚至有些可惜的高质量个人回了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  himfsz  
+##### 852#       发表于 2025-5-11 10:32
+
+以前是创造快乐的时光的企业，忘记什么时候开始就变成梦想制造了
+
+
+*****
+
+####  codezwei  
+##### 853#       发表于 2025-5-11 11:28
+
+反派上班摸鱼也不忘记看idol，真爱粉啊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  新HGCG  
+##### 854#       发表于 2025-5-11 15:16
+
+<img src="https://img.stage1st.com/forum/202505/11/151643fuc4dy2l3fswufcg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.34 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-11 15:16 上传
+
+
+*****
+
+####  渡鸦骑士  
+##### 855#       发表于 2025-5-11 15:32
+
+就是歌她们送的礼物是万代的带货让人很难崩<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  leleq  
+##### 856#       发表于 2025-5-11 17:53
+
+准神回了，
+
+这集让我想起小天使的父亲节回了，可惜在演出上差了不少。
+
+坤坤真是越看越喜欢了，小歌太典了，啥蓝色那不是大腿架子吗<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+上集忘说了这新过场真美啊<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+下一集：感觉是个人都知道独角兽擅长什么类型的脚本啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  maoyou  
+##### 857#       发表于 2025-5-11 18:08
+
+神个几把，我只看见staff在偷懒，一个母亲节回打了半集架，中间插几个回忆就差不多完成任务了？？？接下来还有脸带货？一点该有的文戏都没有，这集真是彪子样的才能拍出来的东西
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  我吃诗人  
+##### 858#       发表于 2025-5-11 18:28
+
+无语了，感觉像在看马三<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  jaewoongh_  
+##### 859#       发表于 2025-5-11 19:15
+
+<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">用回忆煽情的优秀案例有很多啦，不过东映躺平了这么多年能使劲蛄蛹两下就已经很值得鼓励了
+
+
+*****
+
+####  Blackson  
+##### 860#       发表于 2025-5-11 20:50
+
+阿心的性格和背景故事能好衍生有趣的内容和演出，队内的另两位“前辈”就没那么好运了(不好衍生有趣的故事和演出)
+
+这集遇上母亲节+阿心生日，所以顺水推舟做了相关内容
+
+下集一眼搞笑回，还是独角兽执笔，梅洛隆大危机
+
+
+*****
+
+####  粉儿alice  
+##### 861#       发表于 2025-5-11 23:14
+
+演出野本是制作进行转演出助理 演出分镜
+就拿之前宠物和这集表现 给我再去练个几年吧<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 862#         楼主| 发表于 2025-5-11 23:34
+
+[https://x.com/sugimoto_mi_ho_/status/1921357589796860189](https://x.com/sugimoto_mi_ho_/status/1921357589796860189)
+
+\こころ💜お誕生日おめでとう🎂✨/
+<img src="https://p.sda1.dev/24/0476e020da619bf1bc49fe4f44fc07d3/20250511_233149.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/kuubyo/status/1921384114810126766](https://x.com/kuubyo/status/1921384114810126766)
+
+こころ💜キュンキュン！
+
+お誕生日本当におめでとう！！
+
+ステキな1年にね〜💜
+<img src="https://p.sda1.dev/24/5d26730a9f385162078916a0f35f747c/20250511_233154.jpg" referrerpolicy="no-referrer">
+
+[https://x.com/wato_0913/status/1921354205484241297](https://x.com/wato_0913/status/1921354205484241297)
+
+『キミとアイドルプリキュア♪』第14話
+
+第二原画で参加しました！
+
+キュンキュンレーザーとラストシーンを数カット描かせていただきました。
+
+母の日回に携われたことを嬉しく思います。
+
+こころちゃんお誕生日おめでとう！🎉
+<img src="https://p.sda1.dev/24/005030a028e0601934557d69cbd83b99/20250511_233159.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天风绯炎  
+##### 863#       发表于 2025-5-12 01:37
+
+差一点就差一点，个人拙见，三人团大招结束以后留个尾韵，让怪再留几秒，坤坤补个单人版live，最好是清唱无伴奏无舞台效果那种，呼应一下前面跳舞表演感谢母亲的回忆闪回，那味道、那情绪不得一下子就涌上去<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+这集母亲回确实不错，也真的可惜，哪哪都没毛病，哪哪都感觉差那么一口气，小歌小七你俩也整个高质量个人回并且更上一层楼吧，求求了。
+
+眨眼护盾用两次兼用卡，不能忍；送礼物你们哪怕用祖传串珠机编个链子，我都当你们尽力了，带货化妆品真的很没氛围感欸。
+
+总得来说，换一批人马来做q娃确实好像有点不一样感觉的。
+
