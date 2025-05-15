@@ -1301,3 +1301,10 @@ BUFF和DEBUFF弄不干净，难度就直线上升。
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  洛克萨斯  
+##### 18222#       发表于 2025-5-12 14:00
+
+砍小美卡还行，新p逆天啊
+
