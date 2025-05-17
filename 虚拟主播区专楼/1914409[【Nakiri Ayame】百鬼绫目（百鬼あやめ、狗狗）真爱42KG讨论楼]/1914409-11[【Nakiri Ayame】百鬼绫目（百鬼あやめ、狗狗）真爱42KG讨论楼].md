@@ -115,3 +115,10 @@ EMH1N%BPK%UP][8~2`@UQME.jpg
 
 绫总这个月烂得差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+*****
+
+####  V版公用账号  
+##### 14839#       发表于 2025-5-14 11:01
+
+笑嘻了，steam账号被爆出来了，街霸这个游戏有毒，之前佩桑也是这样被挖的
+
