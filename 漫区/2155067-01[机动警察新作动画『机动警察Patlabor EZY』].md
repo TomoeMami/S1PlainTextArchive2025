@@ -1069,3 +1069,10 @@ CG制作：GAZEN
 
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新一代特二的队员看起来像初代的平行时空体……
 
+*****
+
+####  Siran_China  
+##### 95#       发表于 2025-5-18 22:18
+
+所以会提到老二课队员们的归宿吗
+
