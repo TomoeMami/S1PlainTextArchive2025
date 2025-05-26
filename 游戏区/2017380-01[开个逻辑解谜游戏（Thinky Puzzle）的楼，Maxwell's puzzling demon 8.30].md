@@ -3729,3 +3729,12 @@ Z社新作来了
 
 这游戏赶兔子真好玩啊，20只小兔子开地图感觉才是游戏的开始。
 
+*****
+
+####  weiyun  
+##### 257#         楼主| 发表于 2025-5-23 10:17
+
+Gentoo Rescue已出
+
+https://store.steampowered.com/app/2830480/Gentoo_Rescue/
+
