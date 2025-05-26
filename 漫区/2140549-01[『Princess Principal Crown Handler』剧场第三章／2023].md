@@ -973,3 +973,77 @@ pripri-anime.jp
 
 pv里这个画面，看着像是L和公爵做了什么交易把白鸽小队捞出来了，但她们身份已经暴露也不可能继续做间谍了吧，可能交易的条件包括让她们也帮公爵干活？
 
+*****
+
+####  只等待明天  
+##### 100#       发表于 2025-5-23 07:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843009&amp;ptid=2140549" target="_blank">暗黑能乐 发表于 2025-5-23 02:14</a>
+看完了？
+
+—— 来自 HONOR BVL-AN00, Android 15, 鹅球 v3.4.98</blockquote>
+嗯是一到四章连播的先行上映
+
+
+*****
+
+####  暗黑能乐  
+##### 101#       发表于 2025-5-23 08:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67843095&amp;ptid=2140549" target="_blank">只等待明天 发表于 2025-5-23 07:28</a>
+嗯是一到四章连播的先行上映</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">这章咋样，评价评价
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
+*****
+
+####  aaron17  
+##### 102#       发表于 2025-5-23 19:24
+
+這章是過渡啊 大的要來了
+
+— from Sony XQ-CT44, Android 14, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  aaron17  
+##### 103#       发表于 2025-5-23 20:03
+
+白鴿4人被迫雙面間諜 control通過任務試她們忠誠度 最後兩邊不討好 白鴿的處境還是夾縫求生
+
+片尾印第安老哥和澤爾達帶共和國軍or起義軍？劫獄理查德 準備起義了
+
+— from Sony XQ-CT44, Android 14, [S1 Next Goose](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  只等待明天  
+##### 98#       发表于 2025-5-22 22:37
+
+越来越刀了<img src="https://static.stage1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">希望能有个好结局
+
+IMG_3746.jpeg
+(926.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-22 22:33 上传
+
+<img src="https://img.stage1st.com/forum/202505/22/223320j7lrf67zayn6frts.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗黑能乐  
+##### 99#       发表于 2025-5-23 02:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67842620&amp;ptid=2140549" target="_blank">只等待明天 发表于 2025-5-22 22:37</a>
+越来越刀了希望能有个好结局</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">看完了？
+
+—— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
+
+
