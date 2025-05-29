@@ -1053,3 +1053,32 @@ boss的动作还可以， 黄光攻击应该对应刚开服时候的超重击，
 
 卡鲁应该算是早期很有代表性的一个角色了，现在大概率会变成新系统的第一个受害者
 
+*****
+
+####  真爱与热情  
+##### 116#       发表于 2025-5-26 20:38
+
+6.9号A测，所以为什么没有出杖子跟镰刀<img src="https://static.stage1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  医生狼多  
+##### 117#         楼主| 发表于 2025-5-26 20:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67853377&amp;ptid=2173536" target="_blank">真爱与热情 发表于 2025-5-26 20:38</a>
+6.9号A测，所以为什么没有出杖子跟镰刀</blockquote>
+这个测试应该无需报名筛选的？
+
+
+*****
+
+####  放大镜  
+##### 118#       发表于 2025-5-26 23:02
+
+[https://www.bilibili.com/video/BV1KijjzDEvk](https://www.bilibili.com/video/BV1KijjzDEvk)
+
+应该是开放测试，先塞个愿望单吧
+
+测试时间一周，内容比上次丰富很多
+
