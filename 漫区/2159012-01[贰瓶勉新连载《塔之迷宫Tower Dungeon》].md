@@ -1096,3 +1096,54 @@ dmzj章末吐槽怎么一群人说公主和龙融合了，最后一页这是公�
 
 还有估计女骑士的故事之后要展开讲讲了
 
+*****
+
+####  zzf111  
+##### 126#       发表于 2025-5-29 00:52
+
+<img src="https://img.stage1st.com/forum/202505/29/005235s2jpknbkuex44ipp.png" referrerpolicy="no-referrer">
+
+<strong>TWQO``ANUVT5TS96DPBSD.png</strong> (199.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-5-29 00:52 上传
+
+妈宝老王<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">....奇怪的爱好不会和莱欧斯一档吧
+
+
+*****
+
+####  zzf111  
+##### 127#       发表于 2025-5-29 02:21
+
+自汉化截至第18话为止的4ch网友整体的关系表
+<img src="https://p.sda1.dev/24/93be003192dc615add0d3a7e378982a1/1748195659875982.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ku2154513  
+##### 128#       发表于 2025-5-29 03:53
+
+嘬产管好怪
+
+
+*****
+
+####  猫?魔铃  
+##### 129#       发表于 2025-5-29 10:03
+
+日本的神巫六六
+
+
+*****
+
+####  albertfu  
+##### 130#       发表于 2025-5-29 15:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861067&amp;ptid=2159012" target="_blank">zzf111 发表于 2025-5-29 00:52</a>
+
+妈宝老王....奇怪的爱好不会和莱欧斯一档吧</blockquote>
+这一格当时看了半天，敢情这国王一辈子没断奶是吧
+
