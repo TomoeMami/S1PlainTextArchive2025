@@ -4489,3 +4489,24 @@ zhez海底隧道迷宫真的是太复杂了，看了网上的地图还是觉得�
 问下，三个处刑人都干掉了，但是硬币只有两个，我是遇到 bug 了还是哪里出错了。 ...</blockquote>
 看看是不是漏了平原那位的硬币？硬币不在他身上，在平原入口往南走的房子那边
 
+*****
+
+####  masonknight  
+##### 399#       发表于 2025-6-7 11:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67690501&amp;ptid=2246453" target="_blank">shinnfin 发表于 2025-3-20 01:49</a>
+
+真想跟作者好好聊聊天</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">欸？？？怎么搞手机上面玩？
+
+
+*****
+
+####  blueelf  
+##### 400#         楼主| 发表于 2025-6-7 11:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67896311&amp;ptid=2246453" target="_blank">masonknight 发表于 2025-6-7 11:13</a>
+
+欸？？？怎么搞手机上面玩？</blockquote>
+JOIPLAY，教程B站很多
+
