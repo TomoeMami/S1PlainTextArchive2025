@@ -1680,3 +1680,242 @@ Fami 通《鬼武者 Way of the Sword》访谈：体验武藏流战斗
 [https://gouhuo.qq.com/mainpage/d ... 402101402_KItNBd4Zb](https://gouhuo.qq.com/mainpage/detail?storyid=0_20250402101402_KItNBd4Zb)
 [https://www.famitsu.com/article/202503/37453](https://www.famitsu.com/article/202503/37453)
 
+*****
+
+####  Piano-Forest  
+##### 173#         楼主| 发表于 2025-6-7 05:54
+
+PV2：[https://youtu.be/Ai0lx1HXznU](https://youtu.be/Ai0lx1HXznU)
+
+
+*****
+
+####  天神十三煞  
+##### 174#       发表于 2025-6-7 08:19
+
+鬼武者新作这配色
+
+跟忍组是卧龙凤雏了
+
+
+*****
+
+####  伊丽虾皇VI  
+##### 175#       发表于 2025-6-7 08:30
+
+这小次郎外形一眼看上去像井上雄彦浪客行里那个
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  lbb3313725  
+##### 176#       发表于 2025-6-7 08:41
+
+<blockquote>伊丽虾皇VI 发表于 2025-6-7 08:30
+这小次郎外形一眼看上去像井上雄彦浪客行里那个
+
+—— 来自 鹅球 v3.5.99</blockquote>
+我也觉得像
+
+
+*****
+
+####  nage560  
+##### 177#       发表于 2025-6-7 10:32
+
+感觉是要改成偏写实类了，这佐佐木一出来，浪客行味道的确浓。
+
+
+*****
+
+####  zqqwe  
+##### 178#       发表于 2025-6-7 11:04
+
+女主这长脸神似牙狼第一部的邪美法师，不是传统美少女了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  放大镜  
+##### 179#       发表于 2025-6-7 11:24
+
+读作姆萨西，写作泡狐龙<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  HellMaster  
+##### 180#       发表于 2025-6-7 14:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67896270&amp;ptid=2210366" target="_blank">zqqwe 发表于 2025-6-7 11:04</a>
+女主这长脸神似牙狼第一部的邪美法师，不是传统美少女了</blockquote>
+可能不是女主角，像2代一样是老娘呢？
+
+
+*****
+
+####  Asukalangley33  
+##### 181#       发表于 2025-6-7 14:43
+
+才看完PV
+
+这一闪是认真的嘛？
+
+没速度感不说，力量感也没有
+
+感觉动作就很慢
+
+以前新鬼一闪再简化至少反馈是爽的
+
+
+*****
+
+####  Leliel  
+##### 182#       发表于 2025-6-7 14:56
+
+动作应该再调整一下，至少保留招式的凌厉感
+
+
+*****
+
+####  karastar  
+##### 183#       发表于 2025-6-7 15:06
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一眼练手奶粉作
+
+
+*****
+
+####  沉睡城市  
+##### 184#       发表于 2025-6-7 15:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897256&amp;ptid=2210366" target="_blank">Asukalangley33 发表于 2025-6-7 14:43</a>
+
+才看完PV
+
+这一闪是认真的嘛？
+
+没速度感不说，力量感也没有</blockquote>
+不知道是不是一闪，如果是的话，就真特么日了狗。
+
+这一作的动作感太软了，全部预告片都出现过的格挡和牵引，速度和力量感比很多国产武侠烂剧都不如，公园老头老太打太极的既视感。我从小到大看过的所有日式剑戟片或者实际的演武和剑斗视频，都没见过如此软绵缓慢的动作。鬼武者标题的字体也是圆圆胖胖的。
+
+动作天尊+鬼武者，搞出这么个玩意，这是怎样的一种MINDFUCK
+
+
+*****
+
+####  沉睡城市  
+##### 185#       发表于 2025-6-7 15:21
+
+另外，武藏的配音是谁？听起来好像是阿部宽？
+
+
+*****
+
+####  Cranberries  
+##### 186#       发表于 2025-6-7 15:30
+
+这个预告比上个预告观感好点
+
+
+*****
+
+####  夜雨秋水  
+##### 187#       发表于 2025-6-7 15:38
+
+这不明显团长吗，细谷佳正
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  葵  
+##### 188#       发表于 2025-6-7 16:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67442951&amp;ptid=2210366" target="_blank">东方定助 发表于 2025-2-16 22:20</a>
+
+感觉不如仁王......怪设</blockquote>
+那不是肯定的，仁王人设和怪设算是找到了真实系和日式魔幻之间非常完美的一个平衡点了<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  葵  
+##### 189#       发表于 2025-6-7 16:24
+
+这新pv一出，DLC都想好了，佐佐木小次郎岩流传呗，反正他也有鬼手<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ermne  
+##### 190#       发表于 2025-6-7 17:18
+
+怎么哪都有仁批，仁王已经成你们的无暇信仰了，哪方面都想争个第一终结天下，仁王那破怪设也能吹起来了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  性兽阿怪  
+##### 191#       发表于 2025-6-7 20:17
+
+这一闪也太写实了吧，为啥要这么弄，看不太懂，龙信2缺钱也不是这样的啊
+
+
+*****
+
+####  寇马可  
+##### 192#       发表于 2025-6-7 20:32
+
+一闪作为鬼武者核心，不会藏着掖着的。所以不要怀疑，那软绵绵的一刀真的是一闪<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  57042711  
+##### 193#       发表于 2025-6-8 00:04
+
+这招架成功以后的派生敌人直接就像西瓜一样被切开了还是挺带感的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  Eadric  
+##### 194#       发表于 2025-6-8 00:14
+
+这画面看着比仁王的舒服多了，虽然类型差不多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  drx66  
+##### 195#       发表于 2025-6-8 01:10
+
+这个系统看着挺不错的，感觉会好玩
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 196#       发表于 2025-6-8 07:45
+
+pv从头到尾都在完美闪避和格挡，看来是capcom只狼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最后的音乐让我想起了泡沫之舞。
+
+
+*****
+
+####  otakun  
+##### 197#       发表于 2025-6-8 07:55
+
+一闪改成荒野里太刀伤口处决技的动作吧<img src="https://static.stage1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
