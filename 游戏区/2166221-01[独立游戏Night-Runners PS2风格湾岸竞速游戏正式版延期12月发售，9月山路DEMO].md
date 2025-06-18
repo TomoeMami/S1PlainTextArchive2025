@@ -1417,3 +1417,46 @@ at和mt买车的时候就要选好，后期好像是没法改的。
 
 2025-5-8 15:22 上传
 
+*****
+
+####  Tnsbilws  
+##### 73#         楼主| 发表于 2025-6-15 17:04
+
+这几周的开发日志
+
+Miata加入的同时也来了个大的！
+
+湾岸电影版的S30Z也加入了，我只能说这玩意儿在这个题材里绝对不会缺席
+
+<img src="https://img.stage1st.com/forum/202506/15/170205kcyy966c1ypu96ph.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250615165851.png</strong> (2.53 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 17:02 上传
+
+<img src="https://img.stage1st.com/forum/202506/15/170321x0gog6wzhwwh00b0.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250615170010.jpg</strong> (473.17 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 17:03 上传
+
+<img src="https://img.stage1st.com/forum/202506/15/170203vxqllommd9mle4cm.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250615165939.png</strong> (3.23 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 17:02 上传
+
+<img src="https://img.stage1st.com/forum/202506/15/170159drk5km5rr5dz5jm5.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20250615170031.png</strong> (2.11 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-15 17:01 上传
+
