@@ -885,3 +885,152 @@ Mr.エレガンス：小西克幸
 说起来若本是不是也有出演过梅津三部曲OVA当中一部的角色？</blockquote>
 次强音里有
 
+*****
+
+####  aptx8285144  
+##### 100#       发表于 2025-6-27 23:45
+
+是剧场版？为啥还有系列两个字，莫非还有续集
+
+
+*****
+
+####  王九的哥哥  
+##### 101#       发表于 2025-6-28 00:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68012398&amp;ptid=2199597" target="_blank">aptx8285144 发表于 2025-6-27 23:45</a>
+
+是剧场版？为啥还有系列两个字，莫非还有续集</blockquote>
+是个新坑，你理解成剧场先行上映OVA也没差的……
+
+
+*****
+
+####  DARK_HGCG  
+##### 102#       发表于 2025-6-28 17:22
+
+<img src="https://img.stage1st.com/forum/202506/28/172222f0j8ewk989evzj28.jpg" referrerpolicy="no-referrer">
+
+<strong>DSC_0902.JPG</strong> (403.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-28 17:22 上传
+
+妈呀电影院里都是老中青宅男
+
+
+*****
+
+####  emmerMK2  
+##### 103#       发表于 2025-6-28 17:27
+
+梅津泰臣都六十五啦<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 92#         楼主| 发表于 2025-6-26 21:58
+
+【Virgin Punk 主题曲 「Breakin Down」by Laco】 
+[https://b23.tv/jOUElV3](https://b23.tv/jOUElV3)
+
+明日6/27より公開の
+
+『ヴァージン・パンク Clockwork Girl』
+
+劇場物販のなかから
+
+パンフレットの中身を一部ご紹介💡
+
+全80ページの大ボリューム！
+
+様々な角度から #ヴァージンパンク を掘り下げます🔍
+<img src="https://p.sda1.dev/25/05f6a047e4f801d5a8ef45a2b5308eaa/20250626_215707.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/6c4e885058800aaa544b82409fa9c702/20250626_215710.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/262786e95d15465c255a27e944b602c7/20250626_215716.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Tachikoma88  
+##### 93#       发表于 2025-6-27 19:37
+
+今天上映了？没看到有观后感啊
+
+
+*****
+
+####  王九的哥哥  
+##### 94#       发表于 2025-6-27 19:43
+
+风怒编辑
+
+*****
+
+####  王九的哥哥  
+##### 95#       发表于 2025-6-27 19:43
+
+ 本帖最后由 王九的哥哥 于 2025-6-27 19:44 编辑 
+
+风怒编辑
+
+*****
+
+####  王九的哥哥  
+##### 96#       发表于 2025-6-27 19:43
+
+ 本帖最后由 王九的哥哥 于 2025-6-27 19:45 编辑 
+
+风怒编辑
+
+*****
+
+####  王九的哥哥  
+##### 97#       发表于 2025-6-27 19:43
+
+ 本帖最后由 王九的哥哥 于 2025-6-27 19:45 编辑 
+
+看完回来说说感想。
+
+一句话总结就是这才是我喜欢的那个梅津泰臣的风格<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+战斗很爽快，动作很帅(当然也有多余的动作，但是帅的话可以无脑接受)，还有适量番茄酱和グロ画面，以及青春的奶
+
+如果能跟MEZZO FORTE什么的一样打个炮就更好了
+
+以下剧透反白
+
+粉毛10分钟左右就没了，然后想起来声优是田辺留依，就在内心里喷茶……
+
+是应该说借此表达告别上次的失败呢还是一种“你已经没用了”的恶趣味玩梗就不得而知了，早知道这样应该买个talk event场听听看的，说不定会提一句……
+
+
+*****
+
+####  新HGCG  
+##### 98#       发表于 2025-6-27 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68011556&amp;ptid=2199597" target="_blank">王九的哥哥 发表于 2025-6-27 19:43</a>
+
+看完回来说说感想。
+
+一句话总结就是这才是我喜欢的那个梅津泰臣的风格</blockquote>
+啊全东京就只有池袋那里有看是不是……明天（今天）去看...
+
+对了有萝卜吗
+
+
+*****
+
+####  王九的哥哥  
+##### 99#       发表于 2025-6-27 23:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68012344&amp;ptid=2199597" target="_blank">新HGCG 发表于 2025-6-27 23:29</a>
+
+啊全东京就只有池袋那里有看是不是……明天（今天）去看...
+
+对了有萝卜吗 ...</blockquote>
+看你怎么定义萝卜了，我是觉得可以理解成梅津定义的脑子不联网的攻壳……
+
+
