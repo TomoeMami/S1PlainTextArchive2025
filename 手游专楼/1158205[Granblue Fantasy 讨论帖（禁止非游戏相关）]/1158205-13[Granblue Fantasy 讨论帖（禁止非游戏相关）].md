@@ -1529,3 +1529,31 @@ Y94NLT_3]H~`}CWNUEG12LV_tmb.jpg
 这次露莉亚的立绘也重画了，比以前精细了不少，整体也比以前亮了很多<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/24/6976e505e56da7ed977f6fca3d453ecb/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  cnmyster1ous  
+##### 18240#       发表于 2025-6-30 11:49
+
+婚纱新池这个吃相太难看了
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经在思考黑卡芙劳了
+
+
+*****
+
+####  Sylpheed  
+##### 18241#       发表于 2025-6-30 14:31
+
+对我来说没啥区别就是了，想我抽卡实力说话<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+*****
+
+####  shinitakute  
+##### 18242#       发表于 2025-6-30 15:45
+
+黑卡换了芙劳
+
+反正上次150换艾蕾让我觉得很后悔……
+
