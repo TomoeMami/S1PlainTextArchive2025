@@ -1134,3 +1134,124 @@ p4g因为上Steam上得早，玩过p4g的人应该比玩过p3f的人多多了吧
 
 —— 来自 HUAWEI DCO-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+*****
+
+####  alviaze  
+##### 122#       发表于 2025-7-4 11:02
+
+<img src="https://img.stage1st.com/forum/202507/04/105556d71ikk1zteenpx1s.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-07-04_10-55-30.png</strong> (164.05 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-4 10:55 上传
+
+<img src="https://img.stage1st.com/forum/202507/04/105556qgxsbiygtkwd1vvo.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-07-04_10-54-12.png</strong> (84.68 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-4 10:55 上传
+
+<img src="https://img.stage1st.com/forum/202507/04/105556vr1vk9lll1a9yq8y.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2025-07-04_10-53-59.png</strong> (185.2 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-4 10:55 上传
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">翻黑x翻到些不太妙的消息，有一张还是xbox showcase前的rumor
+
+如果外包给东星是真的，那确实可以解释为什么p组在p6开发档期有空开p4r，以及为什么p4r模型和渲染风格都跟p3r不太像。
+
+
+*****
+
+####  Gigax  
+##### 123#       发表于 2025-7-4 11:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68043836&amp;ptid=2253117" target="_blank">alviaze 发表于 2025-7-4 11:02</a>
+
+翻黑x翻到些不太妙的消息，有一张还是xbox showcase前的rumor
+
+如果外包给东星是真的，那确实可以解释为 ...</blockquote>
+那岂不是可以理解为p4r这个项目的存在就纯为了p5x联动这叠醋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  抽烟的猴  
+##### 124#       发表于 2025-7-4 11:38
+
+有点反直觉，毕竟p5x在日本卖的不咋地，p4r倒是无论多烂都能骗个三百多万销量
+
+
+*****
+
+####  jxzeroga0  
+##### 125#       发表于 2025-7-4 11:45
+
+居然不是外包给牢中牢美，感觉要烂完了<img src="https://static.stage1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JOJOROY  
+##### 126#       发表于 2025-7-4 11:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68043836&amp;ptid=2253117" target="_blank">alviaze 发表于 2025-7-4 11:02</a>
+
+翻黑x翻到些不太妙的消息，有一张还是xbox showcase前的rumor
+
+如果外包给东星是真的，那确实可以解释为 ...</blockquote>
+Midori竟然还活着
+
+
+*****
+
+####  Gigax  
+##### 127#       发表于 2025-7-4 11:48
+
+确实要外包还不如外包给完美吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  u2deack  
+##### 128#       发表于 2025-7-4 12:03
+
+虽然我并不是很想再玩，但是P4的重制好好做真有可能卖得蛮多的，拿出点诚意卖个三四百万应该没什么问题吧，真不知道他们怎么想的
+不过也可能是就算随便做他们觉得也能卖这个数
+
+
+*****
+
+####  28201  
+##### 129#       发表于 2025-7-4 13:47
+
+不打算首发入，但不得不说阿特拉斯还是押对了
+xbox发布会直播下面的实时评论全都是刷p4的
+
+
+*****
+
+####  猪突猛进R  
+##### 130#       发表于 2025-7-4 15:13
+
+反正Atlus要把收割粉丝进行到底的，就是不知道什么时候是最后一根稻草。
+
+
+*****
+
+####  Demi.Albertini  
+##### 131#       发表于 2025-7-4 17:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68043836&amp;ptid=2253117" target="_blank">alviaze 发表于 2025-7-4 11:02</a>
+
+翻黑x翻到些不太妙的消息，有一张还是xbox showcase前的rumor
+
+如果外包给东星是真的，那确实可以解释为 ...</blockquote>
+打工王东星？
+
