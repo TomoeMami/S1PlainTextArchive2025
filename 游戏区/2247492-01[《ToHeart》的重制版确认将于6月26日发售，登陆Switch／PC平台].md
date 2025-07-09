@@ -709,3 +709,841 @@ PC有汉化？
 
 店铺特典竟然没一张新图<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+*****
+
+####  笑歌自若  
+##### 100#       发表于 2025-6-21 14:37
+
+这么烂吗，本来还挺期待的<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 101#       发表于 2025-6-22 23:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949583&amp;ptid=2247492" target="_blank">bill910 发表于 2025-6-16 20:50</a>
+
+买了，在淘宝店买了，220多块</blockquote>
+ns试玩版没有中文，不知道正式版有没有。
+
+
+*****
+
+####  Toby_dak  
+##### 102#       发表于 2025-6-22 23:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67976166&amp;ptid=2247492" target="_blank">MkChang 发表于 2025-6-21 15:23</a>
+
+他这个设置我没弄明白，分辨率调了没反应，画面质量给“性能模式，超轻模式，绘图显卡”也是看得我一头雾水 ...</blockquote>
+中文翻译的锅。
+
+日文原文
+
+ウルトラライトモード，ultra light mode，超轻。
+
+パフォーマンスモード，perfomance mode，性能。
+
+グラフィックモード，graphic mode，图像。
+
+
+*****
+
+####  sd1055007  
+##### 103#       发表于 2025-6-24 18:43
+
+笑了，你大水叶要被卖了，不如藤子买回去和键子凑一桌算了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  760194962  
+##### 104#       发表于 2025-6-24 18:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982872&amp;ptid=2247492" target="_blank">Toby_dak 发表于 2025-6-22 23:31</a>
+
+ns试玩版没有中文，不知道正式版有没有。</blockquote>
+steam试玩版有
+
+应该不会switch日区只有日语吧
+
+
+*****
+
+####  yanglian72  
+##### 105#       发表于 2025-6-24 19:11
+
+叶水也太搞了吧，又被当作无效资产了
+
+
+*****
+
+####  无动于衷  
+##### 106#       发表于 2025-6-24 19:53
+
+要被卖了做成这样那就好理解了
+
+
+*****
+
+####  760194962  
+##### 107#       发表于 2025-6-24 20:32
+
+[https://automaton-media.com/articles/newsjp/20250624-346007/](https://automaton-media.com/articles/newsjp/20250624-346007/)
+
+补个链接
+
+
+*****
+
+####  清浦刹那  
+##### 108#       发表于 2025-6-24 21:03
+
+幸好没订，老家都没了<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+白学估计也等不来NS移植了
+
+
+*****
+
+####  Elevation  
+##### 109#       发表于 2025-6-24 22:14
+
+叶水是不是（又）要被卖了？
+
+这下传颂系列还有戏么<img src="https://static.stage1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  小学生把持不住  
+##### 110#       发表于 2025-6-24 22:27
+
+ 本帖最后由 小学生把持不住 于 2025-6-24 22:31 编辑 
+
+叶水30周年才搞了各种活动和公布了几个新作但是混得很坎坷，这就是大家不把叶水归进四小天王的原因吗
+
+
+*****
+
+####  Toby_dak  
+##### 111#       发表于 2025-6-25 11:27
+
+<img src="https://p.sda1.dev/25/1de85d5d2e85518883ebe4b89d26d4d1/1000128148.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/deade99ccc335b5e1dd7e7795f2f2ce2/1000128146.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/2e98df0ea93b61e3ce7d9c2a184807a2/1000128144.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/ba68eef9d3a73b985e5dfd3bacaf9792/1000128142.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/40e17771d9d6de1056802be33c8a2d1e/1000128140.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/25/b43443aad222451800ca2e20db2add6e/1000128333.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  妄想中毒  
+##### 112#       发表于 2025-6-25 12:22
+
+真卖了我缺的黑白莫比乌斯续作谁给我补啊<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 113#       发表于 2025-6-25 15:13
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2025-6-25 15:17 编辑 
+
+黑白莫比乌斯的表现就像是不请新人，强行让组里的老头程序员们搞一个出来。
+
+对比之下，FALCOM的老头们是真的有实力。
+
+不对，少想了一层，falcom多了很多chinese员工还是比较有活力的。
+
+
+*****
+
+####  noahhhh  
+##### 114#       发表于 2025-6-25 15:33
+
+b站看5090跑这游戏性能能占一半
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  sd1055007  
+##### 115#       发表于 2025-6-25 16:00
+
+行不行啊，怎么ns商店里还给下架了，不会真跑路不卖了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 116#       发表于 2025-6-25 23:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67992842&amp;ptid=2247492" target="_blank">760194962 发表于 2025-6-24 19:54</a>
+
+steam试玩版有
+
+应该不会switch日区只有日语吧</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/26/000611wk4sgir24q4bk9tb.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (150.61 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-25 23:06 上传
+
+Steamのみ
+
+
+*****
+
+####  sd1055007  
+##### 117#       发表于 2025-6-25 23:24
+
+服了，原来是ns2兼容有问题，不许玩，这下笑喷了
+
+
+*****
+
+####  760194962  
+##### 118#       发表于 2025-6-26 00:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68000961&amp;ptid=2247492" target="_blank">Toby_dak 发表于 2025-6-25 23:06</a>
+
+Steamのみ</blockquote>
+情報共有ありがとう<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  760194962  
+##### 119#       发表于 2025-6-26 00:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68001075&amp;ptid=2247492" target="_blank">sd1055007 发表于 2025-6-25 23:24</a>
+
+服了，原来是ns2兼容有问题，不许玩，这下笑喷了</blockquote>
+凌晨有人报闪退，当天下午就已经不能下载试玩版了
+
+
+*****
+
+####  Toby_dak  
+##### 120#       发表于 2025-6-26 12:07
+
+<img src="https://p.sda1.dev/25/d37c30f32026e99a9a0e40a3ac558021/1000128588.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  MrJokel  
+##### 121#       发表于 2025-6-26 14:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67993802&amp;ptid=2247492" target="_blank">小学生把持不住 发表于 2025-6-24 22:27</a>
+
+叶水30周年才搞了各种活动和公布了几个新作，怎么混得这么坎坷，这就是大家讨论起四小天王却不提叶水的原因 ...</blockquote>
+以现在来说的话，跟其他四小天王相比差了不止一点半点吧，混成今天这个样子也只能说是咎由自取。
+
+这公司无论是商业嗅觉还是危机预警都是一等一的烂，就连法老控都知道这世代不能光抱一家大腿，要想方设法从其他平台开辟新客层的道理，你叶水还是只知道逮着一家羊毛薅，ns直到末期才懂得移植几个冷饭过来，这步调就已经差其他家太多太多了。
+
+只能说某人写歌水平是还可以，但让这种信徒思想入脑的人来经营公司，混到今天这个局面也就不足为奇了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Toby_dak  
+##### 122#       发表于 2025-6-27 08:39
+
+<img src="https://p.sda1.dev/25/10521a71a47fb0b397dd66e8262cecb6/1000128793.png" referrerpolicy="no-referrer">
+
+カワタヒサシ的るー，会有第三代吗？
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  hl氏  
+##### 123#       发表于 2025-6-27 10:43
+
+试玩版没上NS港服，正式应该也没了，适合掌机玩却不上港服，多上个服要给任天堂多少钱，这也省吗，再不济日服版内置语言也行啊
+
+
+*****
+
+####  落油Я  
+##### 124#       发表于 2025-6-27 11:04
+
+看到122F的图，试着百度回想了一下剧情，记得好像是个胡言乱语的翘课女孩
+
+感觉现在完全玩不了一点，讲难听点像个弱智
+
+*****
+
+####  緋色焰華  
+##### 125#       发表于 2025-6-27 11:05
+
+冲着动画bd买的 ns限定版…… 至今都想不通为何好好一个gal要用蜜汁3d……
+
+
+*****
+
+####  江戸前ルナ  
+##### 126#       发表于 2025-6-27 11:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68003967&amp;ptid=2247492" target="_blank">MrJokel 发表于 2025-6-26 14:43</a>
+
+以现在来说的话，跟其他四小天王相比差了不止一点半点吧，混成今天这个样子也只能说是咎由自取。
+
+这公司无 ...</blockquote>
+就看迷宫旅人的素质和类型的稀缺性，移植NS绝对要卖多非常多。然后现在上steam折戟只能在锁区的DMM和J什么平台卖，加上以前的死忠粉再买都卖不了多少，活该<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 127#       发表于 2025-6-27 13:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68008686&amp;ptid=2247492" target="_blank">落油Я 发表于 2025-6-27 11:04</a>
+
+看到122F的图，试着百度回想了一下剧情，记得好像是个胡言乱语的翘课女孩
+
+感觉现在完全玩不了一点，讲难听 ...</blockquote>
+这叫电波系 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sakuranosibe  
+##### 128#       发表于 2025-6-27 15:01
+
+<img src="https://img.stage1st.com/forum/202506/27/150037jakzrrehtgvq0gkl.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20250627090407.jpg</strong> (197.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-27 15:00 上传
+
+昨天下单，今天就到了，之前买美少女梦工厂限定版一波三折的Orz
+
+*****
+
+####  778899630  
+##### 129#       发表于 2025-6-27 15:03
+
+<blockquote>江戸前ルナ 发表于 2025-6-27 11:50
+就看迷宫旅人的素质和类型的稀缺性，移植NS绝对要卖多非常多。然后现在上steam折戟只能在锁区的DMM和J什 ...</blockquote>
+搞不懂为什么不去GOG卖，反而去一个这么小众的地方，甚至还锁语言，这发行商也是半斤八两，卖不出去都是自找的
+
+
+*****
+
+####  DTCPSS  
+##### 130#       发表于 2025-6-29 19:26
+
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到有人说 ToHeart 动画的 OP 可以完美替换成《终结者2》主题曲
+
+[https://www.bilibili.com/video/BV14bK2zrEpp](https://www.bilibili.com/video/BV14bK2zrEpp)
+[https://x.com/614_HSO/status/1938234414766735620](https://x.com/614_HSO/status/1938234414766735620)
+
+
+*****
+
+####  760194962  
+##### 131#       发表于 2025-6-29 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68019237&amp;ptid=2247492" target="_blank">DTCPSS 发表于 2025-6-29 19:26</a>
+
+看到有人说 ToHeart 动画的 OP 可以完美替换成《终结者2》主题曲
+
+https://www.bilibili.com/video/BV14bK2 ...</blockquote>
+这都能挖坟
+
+把韩版op的日文空耳也翻译成中文挖下坟吧
+
+
+*****
+
+####  bill910  
+##### 132#       发表于 2025-6-30 14:58
+
+TO HEART淘宝的日版商家说，NS版没中文，买我还要不要，我说不要了。<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  原来如此君  
+##### 133#       发表于 2025-6-30 16:09
+
+上eshop看了下ns版没中文这是在干嘛，又不是没做中文，服了
+
+
+*****
+
+####  无动于衷  
+##### 134#       发表于 2025-6-30 22:04
+
+<blockquote>原来如此君 发表于 2025-6-30 16:09
+上eshop看了下ns版没中文这是在干嘛，又不是没做中文，服了</blockquote>
+唯一的可能就是没有代理，就像当初的黑白莫比乌斯隔了好几年家用机才有了中文一样，俩版本的代理是分开的
+
+
+*****
+
+####  Toby_dak  
+##### 135#       发表于 2025-7-3 17:59
+
+<img src="https://p.sda1.dev/25/def6ec320f142f6d5f4a34e0227fe383/1000138281.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  sd1055007  
+##### 136#       发表于 2025-7-6 17:44
+
+哎，终于到了，可惜ns2玩不了
+
+QQ图片20250706174356.jpg
+(943.18 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-6 17:44 上传
+
+<img src="https://img.stage1st.com/forum/202507/06/174406wvk66av3hzvzvo66.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 61#       发表于 2025-6-16 12:03
+
+<img src="https://p.sda1.dev/24/4f7e5d3ed35f4a694a8035c2534a235d/20250616_120035.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  bill910  
+##### 62#       发表于 2025-6-16 16:28
+
+这个实体版只能买日版吧？有中文实体版吗？
+
+
+*****
+
+####  五块  
+##### 63#       发表于 2025-6-16 16:34
+
+高中玩的pc版，神岸明一直是我的理想择偶目标<img src="https://static.stage1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无敌钢人泰坦3  
+##### 64#       发表于 2025-6-16 16:37
+
+<blockquote>bill910 发表于 2025-6-16 16:28
+这个实体版只能买日版吧？有中文实体版吗？</blockquote>
+日版应该带中文
+
+
+*****
+
+####  760194962  
+##### 65#       发表于 2025-6-16 17:35
+
+官网在YouTube陆续上传新版的角色曲
+
+
+*****
+
+####  Toby_dak  
+##### 66#       发表于 2025-6-16 18:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67948535&amp;ptid=2247492" target="_blank">bill910 发表于 2025-6-16 17:28</a>
+
+这个实体版只能买日版吧？有中文实体版吗？</blockquote>
+
+<img src="https://img.stage1st.com/forum/202506/16/195557f19388v8f830fcm8.jpg" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.JPG</strong> (224.11 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-16 18:55 上传
+
+去官网看一下就知道的事。
+
+*****
+
+####  Toby_dak  
+##### 67#       发表于 2025-6-16 19:01
+
+<img src="https://p.sda1.dev/24/9ac7202e4a4ad9b5ef2507b8c796229b/QQ%E5%9B%BE%E7%89%8720250607000338.png" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=I3gQuASL3YQ](https://www.youtube.com/watch?v=I3gQuASL3YQ)
+
+试玩录像。
+
+
+*****
+
+####  bill910  
+##### 68#       发表于 2025-6-16 19:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67949373&amp;ptid=2247492" target="_blank">Toby_dak 发表于 2025-6-16 18:56</a>
+
+去官网看一下就知道的事。</blockquote>
+买了，在淘宝店买了，220多块
+
+
+*****
+
+####  bill910  
+##### 69#       发表于 2025-6-16 20:00
+
+豪华版带的BD高清动画没带中中文字幕，到时等字幕组的动画吧<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ninini212  
+##### 70#       发表于 2025-6-17 00:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我就是你们说的那个更喜欢toheart2的，二代机器人妹妹更戳我就是了
+
+
+*****
+
+####  Piano-Forest  
+##### 71#       发表于 2025-6-17 17:07
+
+Demo试玩6月19日上线
+
+
+*****
+
+####  Toby_dak  
+##### 72#       发表于 2025-6-17 22:20
+
+<img src="https://p.sda1.dev/25/f418f3738508a8438616a58ae67bd55f/キャプチャ.JPG" id="aimg_xxC39" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+*****
+
+####  whzfjd  
+##### 73#       发表于 2025-6-17 22:27
+
+封面这个红毛是要经历个形象改变剧情吗，为什么宣发里都是个难绷的倒栗子头小辫子
+
+
+*****
+
+####  COLEETE  
+##### 74#       发表于 2025-6-17 22:34
+
+<blockquote>妄想中毒 发表于 2025-2-27 18:17
+其实我也不懂二代为什么会火，剧本是真的白开水索然无味</blockquote>
+你能都懂为啥柚子社能火吗？
+
+实际是一样的TH2就是  2000年代的柚子社
+
+另外还有一点相似的地方
+
+就是05年左右
+
+GAL在PS2上迎来一波爆发
+
+以前GAL除了PC基本扎根在世嘉系这个冷门主机上
+
+而随着世嘉退出   大量GAL移植上PS2
+
+扩展了大量用户
+
+叶水就是其中最早吃螃蟹的一批
+
+
+*****
+
+####  无动于衷  
+##### 75#       发表于 2025-6-17 22:45
+
+很多人都对大叶水存在误解，他们不是那种像键社那样能写出感动人心的超级牛掰剧本的公司，而是一直用于探索新的形式的公司。就比如电子小说体，以角色塑造为核心这些点子最早都是大叶水琢磨出来的。包括更好的拥抱家用机，做出来那个里程碑一般的初代tv版也是
+
+*****
+
+####  漫漫来  
+##### 76#       发表于 2025-6-17 22:48
+
+有点奇怪这种gal为什么不是全平台发售，又没有啥技术瓶颈
+
+
+*****
+
+####  Kiyohara_Yasuke  
+##### 77#       发表于 2025-6-18 09:27
+
+怀疑能卖多少
+
+*****
+
+####  760194962  
+##### 78#       发表于 2025-6-18 10:02
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67956125&amp;ptid=2247492" target="_blank">无动于衷 发表于 2025-6-17 22:45</a>
+
+很多人都对大叶水存在误解，他们不是那种像键社那样能写出感动人心的超级牛掰剧本的公司，而是一直用于探索 ...</blockquote>
+最近把2000年之前的Leaf作品都玩了玩，挺戳我的。如你所说我玩的时候总能看到些有意思的新东西，这帮人做东西玩心挺重的。Leaf Amusement Soft系列也看了看
+
+Comic Party没怎么玩，不是视觉小说，还要养成，玩着特麻烦。动画因为跟ToHeart同公司制作于是游戏没玩，直接去看了看动漫，感觉也一般。
+
+Key社的作品一直没动力玩可能也是在我看来太传统了。
+
+
+*****
+
+####  mashav  
+##### 79#       发表于 2025-6-18 23:36
+
+demo在ns2上运行报错，进不了游戏
+
+
+*****
+
+####  Toby_dak  
+##### 80#       发表于 2025-6-18 23:49
+
+还是不习惯小草莓配的神岸明……
+
+<img src="https://p.sda1.dev/25/425dab9c0c82acf595204a7630631d33/1000126905.jpg" referrerpolicy="no-referrer">
+
+----发送自 [Sony XQ-CT44,Android 14](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  whzfjd  
+##### 81#       发表于 2025-6-19 00:52
+
+NS2 一启动就报错，凹了好几次倒是能进
+
+但（兼容模式）画面表现极其糟糕，建模上硕大的锯齿，所有的 UI 和文本都有明显可见的锯齿狗牙，仿佛都是低分辨率位图（应该不可能吧）
+
+之前也试玩了些别的 gal，文字图片缩放基本没有大毛病，怎么到了 aqua 这里如此阿库娅。
+
+看 banner 原来有 tamsoft 参与，感觉可以期待 tamsoft 的三渲二 act 了（
+
+
+*****
+
+####  whzfjd  
+##### 82#       发表于 2025-6-19 01:27
+
+写程序的人菜到抠脚啊，PC 上 2K 屏启动默认 1080p，结果也是糊出天地，满地爬的流动狗牙和颗粒感十足的文字，你们这缩放算法也是一视同仁了。
+
+改成 2K 分辨率（支持 4K）后好了一些，起码文字只有非常数毛的边缘锯齿了，但背景墙壁的狗牙依然有存在感，你们是一点抗锯齿都不做吗？人物身上也依然有锯齿，但勉强可以忽略。
+
+适配就更逆天了，光标定位不准，选项切换靠抽象图标的 PageUp，PageDown，你知道笔记本上 PgUp PgDn 有多难按吗？选项不支持 WASD。跳过竟然不是默认已读，而是默认关闭。
+
+你们 gal 厂为什么总是看一些奇怪的 SDK 文档啊<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RedSpecial  
+##### 83#       发表于 2025-6-19 01:37
+
+一进游戏有很强的既视感，这不是TH2和班长一起过暑假的FD吗
+
+
+*****
+
+####  swordofsoul1  
+##### 84#       发表于 2025-6-19 02:21
+
+ns版在ns2上运行第一次进入黑屏，退出游戏删demo时系统报错ns2强制重启
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  sd1055007  
+##### 85#       发表于 2025-6-19 09:22
+
+哎，服了，ns2打开就报错，重启了才进去
+
+一进去只能说都2025了，还能见到这么糊这么狗牙的30帧游戏是真不容易，要不你还是拿ai跑下旧图拉分辨率搞2d重置算了吧，这个规格真弄th2重置我有点害怕<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  吴怀在  
+##### 86#       发表于 2025-6-19 09:31
+
+担心bd重置会不会是一坨
+
+
+*****
+
+####  760194962  
+##### 87#       发表于 2025-6-19 09:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964167&amp;ptid=2247492" target="_blank">吴怀在 发表于 2025-6-19 09:31</a>
+
+担心bd重置会不会是一坨</blockquote>
+这个有什么先例？很难想象区区动漫、只是被高清化的话能带来多么毁灭性的影响。我觉得新版蓝光的质量应该是最稳的
+
+*****
+
+####  吴怀在  
+##### 88#       发表于 2025-6-19 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67964285&amp;ptid=2247492" target="_blank">760194962 发表于 2025-6-19 09:50</a>
+这个有什么先例？很难想象区区动漫、只是被高清化的话能带来多么毁灭性的影响。我觉得新版蓝光的质量应该 ...</blockquote>
+我就随口一说，主要是官方放的样片感觉不咋样。虽然帧率是60帧疑似录屏而已，可以这么安慰自己。
+
+
+*****
+
+####  sd1055007  
+##### 89#       发表于 2025-6-19 10:12
+
+哎，我悟了，就该开novel模式当老逼，这遮罩往上一糊，什么狗牙什么30帧都看不见了【
+
+
+*****
+
+####  圣天辉  
+##### 90#       发表于 2025-6-19 13:31
+
+ 本帖最后由 圣天辉 于 2025-6-19 13:33 编辑 
+<blockquote>760194962 发表于 2025-6-19 09:50
+这个有什么先例？很难想象区区动漫、只是被高清化的话能带来多么毁灭性的影响。我觉得新版蓝光的质量应该 ...</blockquote>
+
+毁灭性大概率不至于，不过如果讲究在意这方面的话，老作品的蓝光能出现的问题还是有很多的吧。我不懂技术，单说自己观看的经验来讲，这种最明确的点比如有，可能“把原本一些细节的纹路和花纹直接抹掉了”“色调与原本观感差别很大，破坏了原本创作者色设计的意图和表现”“整体亮度高了之后明亮处有类似过曝一般的效果”等这样的。
+
+*****
+
+####  无动于衷  
+##### 91#       发表于 2025-6-19 13:33
+
+如果是数码修复版是会存在类似问题，典型代表抚子号TV数码修复版，跟原版画质根本两码事了属于是
+
+
+*****
+
+####  760194962  
+##### 92#       发表于 2025-6-19 19:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67965663&amp;ptid=2247492" target="_blank">圣天辉 发表于 2025-6-19 13:31</a>
+
+毁灭性大概率不至于，不过如果讲究在意这方面的话，老作品的蓝光能出现的问题还是有很多的吧。我不懂技术 ...</blockquote>
+我能找到的DVD版还是经常出现杂音以及谜之水纹？的（前两年打完ToHeart后看的），官方放出来的第一集还有特典篇我看了下这些问题都被修复掉了，基本是我理想中该有的样子
+
+
+*****
+
+####  Toby_dak  
+##### 93#       发表于 2025-6-19 22:35
+
+ファミ通
+<img src="https://i.ibb.co/d0ZsBRHc/Screenshot-2025-06-19-at-19-35-31-To-Heart-com.png" referrerpolicy="no-referrer">
+
+電撃
+<img src="https://i.ibb.co/fYg4W8q2/Screenshot-2025-06-19-at-19-37-44-To-Heart-30.png" referrerpolicy="no-referrer">
+
+ASCII
+<img src="https://i.ibb.co/qY54PHk0/Screenshot-2025-06-19-at-19-38-10-ASCII-jp-To-Heart-5.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 94#       发表于 2025-6-19 22:57
+
+玩了demo，依我看要么换个代工，要么2代重制还是别做了，咱丢不起这人
+
+
+*****
+
+####  清浦刹那  
+##### 95#       发表于 2025-6-20 13:20
+
+这体验版……购买欲望反而下降了
+
+
+*****
+
+####  refiver  
+##### 96#       发表于 2025-6-20 15:00
+
+有一说一现在这构式3d真比非ai的2dcg便宜吧
+
+
+*****
+
+####  星花  
+##### 97#       发表于 2025-6-20 18:57
+
+有多差，我现在就下来观摩一下。<img src="https://static.stage1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 98#       发表于 2025-6-20 19:47
+
+ 本帖最后由 Dai-Dai-Dai-Dai 于 2025-6-20 19:48 编辑 
+
+<img src="https://img.stage1st.com/forum/202506/20/194410zoagno8k8rqnpu8q.png" referrerpolicy="no-referrer">
+
+<strong>254252727523753.png</strong> (1.2 MB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 19:44 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/194410mqx8q19x77xx4m7l.jpg" referrerpolicy="no-referrer">
+
+<strong>5418418498.JPG</strong> (67.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 19:44 上传
+
+<img src="https://img.stage1st.com/forum/202506/20/194409byarwcvsasszbsii.jpg" referrerpolicy="no-referrer">
+
+<strong>25424527275275.JPG</strong> (87.49 KB, 下载次数: 0)
+
+下载附件
+
+2025-6-20 19:44 上传
+
+立绘现代化重制了，建模还是旧画风的样子，你看这是同一个人吗？
+
+男主那张死ma脸活像某个武斗派中专生。
+
+全3D场景和一些3D演出好评，提高了不少沉浸感，但P5和新樱花大战等游戏都干过了于是缺乏新鲜感。
+
+PS:进游戏第一件事把画质调高，不然画面超糊。
+
+
+*****
+
+####  MkChang  
+##### 99#       发表于 2025-6-21 14:23
+
+他这个设置我没弄明白，分辨率调了没反应，画面质量给“性能模式，超轻模式，绘图显卡”也是看得我一头雾水<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
