@@ -3765,3 +3765,12 @@ https://store.steampowered.com/app/2830480/Gentoo_Rescue/
 不一定符合量大管饱，但only sliding和spacecaps都不错</blockquote>
 mark，感谢
 
+*****
+
+####  hexiangjie123  
+##### 261#       发表于 2025-7-6 15:27
+
+[https://sudokupad.app/qq3kyjvu5q?setting-nogrid=1](https://sudokupad.app/qq3kyjvu5q?setting-nogrid=1)
+
+数独恶魔城，有人发过吗
+
