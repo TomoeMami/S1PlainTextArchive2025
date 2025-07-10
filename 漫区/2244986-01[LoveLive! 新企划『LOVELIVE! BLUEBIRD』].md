@@ -2234,3 +2234,11 @@ LoveLive!Days 2025年7月号
 <img src="https://p.sda1.dev/25/3a8e2e0fb67eca6b6a2d5555744b23c4/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/25/e77e923d3045c860ef9b52dfdff3e15e/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  仟音一心  
+##### 205#       发表于 2025-7-7 17:19
+
+官方征集人生不易部的icon。
+<img src="https://p.sda1.dev/25/2e434f10ee9a5127518d83b0318cd3db/image.jpg" referrerpolicy="no-referrer">
+
