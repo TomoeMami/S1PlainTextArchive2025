@@ -1076,3 +1076,46 @@ CG制作：GAZEN
 
 所以会提到老二课队员们的归宿吗
 
+*****
+
+####  yskwyk  
+##### 96#       发表于 2025-7-12 05:51
+
+近期脚本集发售
+
+<img src="https://img.stage1st.com/forum/202507/12/055059pbxxm45fsfsuxuxo.png" referrerpolicy="no-referrer">
+
+<strong>IMG_6306.png</strong> (250.85 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-12 05:50 上传
+
+IMG_6305.jpeg
+(60.52 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-12 05:50 上传
+
+<img src="https://img.stage1st.com/forum/202507/12/055059ziwcevpctzievmvc.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+IMG_6304.jpeg
+(990.22 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-12 05:51 上传
+
+<img src="https://img.stage1st.com/forum/202507/12/055100ynx2rrqn8hnjrxlr.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  RhmBWT_Wu  
+##### 97#       发表于 2025-7-12 10:15
+
+8月好像有个展，刚好2-4号去看live，准备顺便去看看
+
+—— 来自 OnePlus PGKM10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
