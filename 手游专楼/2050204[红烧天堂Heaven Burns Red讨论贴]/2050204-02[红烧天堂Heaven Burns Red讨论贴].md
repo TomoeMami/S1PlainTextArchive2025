@@ -228,3 +228,10 @@ nga打分算很菜的，好阵容直接b站搜甚至能看顶分阵容
 
 CV的发挥更是顶尖，这才是二游楷模<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+*****
+
+####  pf67  
+##### 1683#       发表于 2025-7-18 10:57
+
+飞机社这波操作，是要自杀了吧
+
