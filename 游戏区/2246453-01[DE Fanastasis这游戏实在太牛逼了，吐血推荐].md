@@ -4510,3 +4510,229 @@ zhez海底隧道迷宫真的是太复杂了，看了网上的地图还是觉得�
 欸？？？怎么搞手机上面玩？</blockquote>
 JOIPLAY，教程B站很多
 
+*****
+
+####  RUANHYC  
+##### 401#       发表于 2025-7-17 02:06
+
+steam版能放大窗口吗，太小了有点费眼
+
+
+*****
+
+####  lyceshao  
+##### 402#       发表于 2025-7-17 08:14
+
+居然在打完魔女帝之后烂尾了，还缺3个追忆，找不到在哪里。地图太大，路早就不记得了，这时候回去找东西是有多痛苦。
+
+我在海岸洞窟隐藏祠堂下面一个桌子推不动，主角头顶一串省略号就没别的了，攻略说推不动去找小魔女聊天，聊了也没反应啊。
+
+还有之前在奉龙殿干掉利亚德了，最下面的门打不开，没有任何提示。看视频攻略才知道要在前面伏龙殿拿到一把钥匙。既然这钥匙这么重要，为何不设在必经之路，否则谁知道啊。
+
+游戏真的牛逼，提示和指引也真的是渣渣。
+
+虽然离结局一步之遥，但我是不想动了。
+
+
+*****
+
+####  onlv星骸  
+##### 403#       发表于 2025-7-17 08:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110451&amp;ptid=2246453" target="_blank">RUANHYC 发表于 2025-7-17 02:06</a>
+
+steam版能放大窗口吗，太小了有点费眼</blockquote>
+ALT+ENTER能全屏
+
+
+*****
+
+####  shimotsuki14  
+##### 404#       发表于 2025-7-17 08:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110720&amp;ptid=2246453" target="_blank">lyceshao 发表于 2025-7-17 08:14</a>
+
+居然在打完魔女帝之后烂尾了，还缺3个追忆，找不到在哪里。地图太大，路早就不记得了，这时候回去找东西是 ...</blockquote>
+我是一路推到恶魔镇然后就歇了……两三个月没再动过
+
+
+*****
+
+####  瑟莉亚  
+##### 405#       发表于 2025-7-17 08:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67896342&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-6-7 11:20</a>
+
+JOIPLAY，教程B站很多</blockquote>
+你用JOIPLAY进卡农之棺第三层会闪退吗？我无论是从2层下楼梯到3层，还是直接传送到3层，只要一进3层就闪退。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  catabridge  
+##### 406#       发表于 2025-7-17 09:36
+
+<blockquote>RUANHYC 发表于 2025-7-17 02:06
+steam版能放大窗口吗，太小了有点费眼</blockquote>
+用magpie 或者小黄鸭呗
+
+
+*****
+
+####  blueelf  
+##### 407#         楼主| 发表于 2025-7-17 09:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110911&amp;ptid=2246453" target="_blank">瑟莉亚 发表于 2025-7-17 08:59</a>
+
+你用JOIPLAY进卡农之棺第三层会闪退吗？我无论是从2层下楼梯到3层，还是直接传送到3层，只要一进3层就闪 ...</blockquote>
+问了下群，都说没遇到过这个问题
+
+
+*****
+
+####  瑟莉亚  
+##### 408#       发表于 2025-7-17 09:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68111213&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-7-17 09:44</a>
+
+问了下群，都说没遇到过这个问题</blockquote>
+这样么，是用哪个版本的啊？我用JoiPlay1.20.580，RPGMPlugin插件1.21.31。后来更新到最新1.20.590，插件更新到1.23.40。一样闪退，我是用寨机RP FILP2玩的，难道是机子问题？今晚回去换其他机器看看。<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  blueelf  
+##### 409#         楼主| 发表于 2025-7-17 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68111288&amp;ptid=2246453" target="_blank">瑟莉亚 发表于 2025-7-17 09:57</a>
+
+这样么，是用哪个版本的啊？我用JoiPlay1.20.580，RPGMPlugin插件1.21.31。后来更新到最新1.20.590，插件 ...</blockquote>
+
+<img src="https://img.stage1st.com/forum/202507/17/101102yb9r1015s18rqbh4.jpg" referrerpolicy="no-referrer">
+
+<strong>B250D61D725E941D358D6AD991B00557.jpg</strong> (71.62 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-17 10:11 上传
+
+这个是群里一个说零闪退的用的版本，你看下是不是设备和游戏的问题
+
+
+*****
+
+####  瑟莉亚  
+##### 410#       发表于 2025-7-17 10:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68111383&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-7-17 10:11</a>
+
+这个是群里一个说零闪退的用的版本，你看下是不是设备和游戏的问题</blockquote>
+好的，谢谢，我找找这个版本的试试看看。
+
+
+*****
+
+####  kerbad  
+##### 411#       发表于 2025-7-17 13:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110451&amp;ptid=2246453" target="_blank">RUANHYC 发表于 2025-7-17 02:06</a>
+steam版能放大窗口吗，太小了有点费眼</blockquote>
+窗口化模式按F5能调四档大小，还小的话就只能用软件放大了
+
+
+*****
+
+####  瑟莉亚  
+##### 412#       发表于 2025-7-17 19:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68111383&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-7-17 10:11</a>
+这个是群里一个说零闪退的用的版本，你看下是不是设备和游戏的问题</blockquote>
+确实是joiplay模拟器版本问题，换成这个版本就不闪退了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  animal_k  
+##### 413#       发表于 2025-7-17 21:54
+
+这游戏真的很需要一个攻略，我现在边看群里的地图边玩，有些东西都找不到，路太绕太能藏了。有些boss不拿到对应道具还特别难打
+
+
+*****
+
+####  远野乙姬  
+##### 414#       发表于 2025-7-18 00:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68110911&amp;ptid=2246453" target="_blank">瑟莉亚 发表于 2025-7-17 08:59</a>
+你用JOIPLAY进卡农之棺第三层会闪退吗？我无论是从2层下楼梯到3层，还是直接传送到3层，只要一进3层就闪 ...</blockquote>
+大概率你下的游戏缺资源
+
+—— 来自 OPPO PKH110, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  瑟莉亚  
+##### 415#       发表于 2025-7-18 08:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68115790&amp;ptid=2246453" target="_blank">远野乙姬 发表于 2025-7-18 00:33</a>
+
+大概率你下的游戏缺资源
+
+—— 来自 OPPO PKH110, Android 15, 鹅球 v3.5.99</blockquote>
+不是游戏问题，是joiplay的问题，用旧版的就不闪退了。同一个游戏在新版joiplay和在win上显示是一样的，用旧版joiplay就缺了些贴图。估计是新版joiplay能加载的贴图和特效比旧版多，然后某些贴图或者特效的兼容性上有问题导致的神秘错误造成的闪退。例如下面的附件（左边是win的，右边是旧版joiplay的显示画面）。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202507/18/083854quggusa75gs41otj.png" referrerpolicy="no-referrer">
+
+<strong>fa.png</strong> (528.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-7-18 08:38 上传
+
+
+*****
+
+####  Nihlathak  
+##### 416#       发表于 2025-7-18 09:20
+
+steam有中文吗？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  blueelf  
+##### 417#         楼主| 发表于 2025-7-18 10:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68116432&amp;ptid=2246453" target="_blank">Nihlathak 发表于 2025-7-18 09:20</a>
+
+steam有中文吗？
+
+—— 来自 鹅球 v3.3.96</blockquote>
+没，现在只有民间汉化，看这个帖子
+[https://stage1st.com/2b/thread-2244735-1-1.html](https://stage1st.com/2b/thread-2244735-1-1.html)
+
+
+*****
+
+####  Nihlathak  
+##### 418#       发表于 2025-7-18 10:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68116766&amp;ptid=2246453" target="_blank">blueelf 发表于 2025-7-18 10:25</a>
+没，现在只有民间汉化，看这个帖子
+
+https://stage1st.com/2b/thread-2244735-1-1.html</blockquote>
+好的谢谢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  麦吉卡  
+##### 419#       发表于 2025-7-18 12:41
+
+这游戏最大的问题就是，中途丢了捡不起来啊，之前辛辛苦苦探的地图现在一点印象都没了，没有捡起来的勇气
+
