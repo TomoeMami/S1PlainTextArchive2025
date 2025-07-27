@@ -711,3 +711,65 @@ AI未亡人的老公头发跟男主一模一样（性格也差不多） 搞不�
 </blockquote>
 不知道啥时候出玩具
 
+*****
+
+####  JuicyJuice  
+##### 64#         楼主| 发表于 2025-7-24 09:10
+
+死掉了这漫画
+
+
+*****
+
+####  八坂真寻  
+##### 65#       发表于 2025-7-24 12:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68147515&amp;ptid=2201976" target="_blank">JuicyJuice 发表于 2025-7-24 09:10</a>
+
+死掉了这漫画</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这就斩了？柰子不够大还是萝卜太过气
+
+
+*****
+
+####  whzfjd  
+##### 66#       发表于 2025-7-24 12:42
+
+青梅赢了吗
+
+*****
+
+####  花咲茜  
+##### 67#       发表于 2025-7-24 12:43
+
+就算砍了，能开心的画大胸也值了
+
+
+*****
+
+####  JuicyJuice  
+##### 68#         楼主| 发表于 2025-7-24 16:46
+
+<blockquote>八坂真寻 发表于 2025-7-24 12:24
+这就斩了？柰子不够大还是萝卜太过气
+
+看了下四个月没更新，也没出个公告么
+
+ ...</blockquote>
+可能是实体书卖不动出版社就砍了
+
+不过tt也把这ip给弃了是没想到的
+
+
+*****
+
+####  八坂真寻  
+##### 69#       发表于 2025-7-24 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68150945&amp;ptid=2201976" target="_blank">JuicyJuice 发表于 2025-7-24 16:46</a>
+
+可能是实体书卖不动出版社就砍了
+
+不过tt也把这ip给弃了是没想到的</blockquote>
+看了下单行本第一卷没摸到Oricon一月榜前500推定5800册的水线，估计预期挺高吧<img src="https://static.stage1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
