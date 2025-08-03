@@ -997,3 +997,10 @@ SteamDeck需要安装运行库吗？</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
 
+*****
+
+####  nimi007  
+##### 94#       发表于 2025-7-31 18:16
+
+魔法题材不错，当初很喜欢雷顿vs逆转
+
