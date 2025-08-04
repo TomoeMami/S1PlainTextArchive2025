@@ -579,3 +579,12 @@ x的 我的侦探绅士完结篇呢？ 为什么就这么没了？<img src="http
 
 不报期待了……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+*****
+
+####  灵魂收割机  
+##### 57#       发表于 2025-8-1 20:32
+
+[https://news.denfaminicogamer.jp/news/250801h](https://news.denfaminicogamer.jp/news/250801h)
+
+新角色公开。故事发生时间公开：初代系列（天神小学相关作品）的五年后。
+
