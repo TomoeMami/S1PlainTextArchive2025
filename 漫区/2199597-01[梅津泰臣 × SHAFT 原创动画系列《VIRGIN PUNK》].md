@@ -1034,3 +1034,134 @@ Mr.エレガンス：小西克幸
 看你怎么定义萝卜了，我是觉得可以理解成梅津定义的脑子不联网的攻壳……
 
 
+*****
+
+####  AraTurambar  
+##### 104#       发表于 2025-8-3 11:45
+
+打戏爽爆了，很色也不用说。
+
+女主武器好酷，我爱了。
+
+
+*****
+
+####  manyin1  
+##### 105#       发表于 2025-8-3 15:01
+
+会出BD吗<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  xwr  
+##### 106#       发表于 2025-8-3 15:15
+
+梅津泰臣支棱起来了？ 好耶！
+
+
+*****
+
+####  勿徊哉  
+##### 107#       发表于 2025-8-3 15:23
+
+啊，什么时候有BD
+
+
+*****
+
+####  AraTurambar  
+##### 108#       发表于 2025-8-4 05:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68207176&amp;ptid=2199597" target="_blank">manyin1 发表于 2025-8-3 15:01</a>
+
+会出BD吗</blockquote>
+36分钟咋出BD咧……
+
+
+*****
+
+####  迷路的石头  
+##### 109#       发表于 2025-8-4 08:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68207218&amp;ptid=2199597" target="_blank">xwr 发表于 2025-8-3 15:15</a>
+
+梅津泰臣支棱起来了？ 好耶！</blockquote>
+梅津泰臣只要有钱，一直都是能支棱起来的
+
+
+*****
+
+####  rk4444  
+##### 110#       发表于 2025-8-4 11:45
+
+<blockquote>AraTurambar 发表于 2025-8-3 11:45
+打戏爽爆了，很色也不用说。
+
+女主武器好酷，我爱了。</blockquote>
+有多色？本番回归了吗
+
+
+*****
+
+####  砂雪  
+##### 111#       发表于 2025-8-4 12:54
+
+东京还有电影院在放映吗？想抽空看看…
+
+
+*****
+
+####  王九的哥哥  
+##### 112#       发表于 2025-8-4 13:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212717&amp;ptid=2199597" target="_blank">砂雪 发表于 2025-8-4 12:54</a>
+东京还有电影院在放映吗？想抽空看看…</blockquote>
+东京本来也就テアトル新宿和シネ・リーブル池袋两个馆有，目前还没有下映，不过一天也就两场左右吧……
+
+
+*****
+
+####  砂雪  
+##### 113#       发表于 2025-8-4 13:54
+
+<blockquote>王九的哥哥 发表于 2025-8-4 13:43
+东京本来也就テアトル新宿和シネ・リーブル池袋两个馆有，目前还没有下映，不过一天也就两场左右吧…… ...</blockquote>
+好的谢谢～
+
+
+*****
+
+####  hunger  
+##### 114#       发表于 2025-8-4 15:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212717&amp;ptid=2199597" target="_blank">砂雪 发表于 2025-8-4 12:54</a>
+
+东京还有电影院在放映吗？想抽空看看…</blockquote>
+24日テアトル新宿有舞台挨拶，声优和监督会来，16:15那场还剩一点
+[https://ttcg.jp/theatre_shinjuku/topics/2025/07302100_32368.html](https://ttcg.jp/theatre_shinjuku/topics/2025/07302100_32368.html)
+
+
+*****
+
+####  砂雪  
+##### 115#       发表于 2025-8-4 15:24
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68213626&amp;ptid=2199597" target="_blank">hunger 发表于 2025-8-4 15:17</a>
+
+24日テアトル新宿有舞台挨拶，声优和监督会来，16:15那场还剩一点
+
+https://ttcg.jp/theatre_shinjuku/top ...</blockquote>
+谢谢！！！太感谢了
+
+
+*****
+
+####  AraTurambar  
+##### 116#       发表于 2025-8-5 05:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68212174&amp;ptid=2199597" target="_blank">rk4444 发表于 2025-8-4 11:45</a>
+
+有多色？本番回归了吗</blockquote>
+那没有，我只是说洗澡镜头nice body。
+
