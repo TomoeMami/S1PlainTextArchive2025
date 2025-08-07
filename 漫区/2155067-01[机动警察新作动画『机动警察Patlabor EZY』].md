@@ -1119,3 +1119,23 @@ IMG_6304.jpeg
 
 —— 来自 OnePlus PGKM10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+*****
+
+####  RhmBWT_Wu  
+##### 98#       发表于 2025-8-4 12:00
+
+ezy搞不好本来准备25年播的
+看线下展，有个ezy播出时间2026是后来贴上去的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus PGKM10, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  泥鳅  
+##### 99#       发表于 2025-8-4 12:37
+
+旧TV里明目张胆黑军队公务员的段子，现在这年头还能有吗？
+
+—— 来自 HONOR PPG-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
