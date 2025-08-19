@@ -1201,3 +1201,12 @@ A队整场下来呼吸rating最高吗<img src="https://static.stage1st.com/image
 
 老猪离队了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  朔方原的星  
+##### 4787#         楼主| 发表于 2025-8-17 02:31
+
+蒙古队打的真好啊
+​下半场被连续追分被各种混死，我都以为蒙古队又要软脚了
+​结果居然一直打得挺冷静的，真蜕变了
+
