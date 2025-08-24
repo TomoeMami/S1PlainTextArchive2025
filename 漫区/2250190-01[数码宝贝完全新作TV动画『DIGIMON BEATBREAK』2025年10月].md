@@ -1203,3 +1203,40 @@ CGディレクター：大曽根悠介
 数码宝贝电视动画上一个番茄头是新海春，声优内山夕实。</blockquote>
 春是番茄但不是番茄头（
 
+*****
+
+####  TOYSTORY  
+##### 95#       发表于 2025-8-21 21:57
+
+<img src="https://img.stage1st.com/forum/202508/21/215657ff95zzu94797f2w1.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (208.9 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 21:56 上传
+
+<img src="https://img.stage1st.com/forum/202508/21/215658st3gf46ef24hh02g.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (209.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 21:56 上传
+
+<img src="https://img.stage1st.com/forum/202508/21/215659ryyvrtvhnvpkgugh.jpg" referrerpolicy="no-referrer">
+
+<strong>3.jpg</strong> (185.79 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 21:56 上传
+
+<img src="https://img.stage1st.com/forum/202508/21/215701se7xym7l7udilz7n.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (281.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 21:57 上传
+
