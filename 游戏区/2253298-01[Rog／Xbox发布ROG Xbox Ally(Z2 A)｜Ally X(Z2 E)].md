@@ -1201,3 +1201,205 @@ Z1E版的Rog Ally初版挺便宜的了, 450刀或者3000人民币. 这个Z2A版,
 2025年還有人拿歐版價當參考的嗎
 
 
+*****
+
+####  医生狼多  
+##### 113#       发表于 2025-8-20 17:36
+
+🔸 ROG Xbox Ally: 549.99 USD
+🔹 ROG Xbox Ally X: 899.99 USD
+
+
+*****
+
+####  泰坦失足  
+##### 114#         楼主| 发表于 2025-8-20 17:46
+
+ 本帖最后由 泰坦失足 于 2025-8-20 17:47 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68296037&amp;ptid=2253298" target="_blank">医生狼多 发表于 2025-8-20 17:36</a>
+
+🔸 ROG Xbox Ally: 549.99 USD
+
+🔹 ROG Xbox Ally X: 899.99 USD</blockquote>
+?????????????????????
+
+我没记错的话Xbox Ally的Z2Go连Z1E的Rog Ally都打不过吧
+
+
+*****
+
+####  bypass  
+##### 115#       发表于 2025-8-20 17:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68296074&amp;ptid=2253298" target="_blank">泰坦失足 发表于 2025-8-20 17:46</a>
+
+?????????????????????
+
+bilibili kun泄露的应该没错, 但是太抽象了
+
+我没记错的话Xbox Ally的Z2Go连Z1E的Ro ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 重点还是那个定制化 Windows，好用的话，后面一堆第三方设备商总归会出便宜机型的。
+
+
+*****
+
+####  karastar  
+##### 116#       发表于 2025-8-20 18:06
+
+ns2突然有性价比了。<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  我是快乐小马甲  
+##### 117#       发表于 2025-8-20 23:33
+
+On October 16, the Xbox Ally handhelds will be available in Australia, Belgium, Canada, Czech Republic, China (Xbox Ally X only), Denmark, Finland, France, Germany, Hong Kong, Italy, Ireland, Japan, Malaysia, Mexico, the Netherlands, New Zealand, Norway, Philippines, Poland, Portugal, Romania, Saudi Arabia, Singapore, South Korea, Spain, Sweden, Switzerland, **, Turkey, United Arab Emirates, United Kingdom, United States and Vietnam. 还是华硕关系硬
+
+
+*****
+
+####  fbman  
+##### 118#       发表于 2025-8-20 23:39
+
+居然有国行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  泰坦失足  
+##### 119#         楼主| 发表于 2025-8-21 08:02
+
+[https://www.youtube.com/watch?v=VTaboYwSyuc](https://www.youtube.com/watch?v=VTaboYwSyuc)
+
+油 管评论比我想象的还刻薄<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+我的 Xbox 账户里拥有 559 款游戏——只有 25 款支持 Xbox Play Anywhere。把这台设备称为“Xbox”毫无道理，因为它无法运行 95% 的 Xbox 游戏。它应该被称为“PC ROG Ally”或“Windows ROG Ally”。把“Xbox”作为这款掌机的名字极具误导性。想象一下家长买来当礼物，结果发现孩子根本不能在上面玩 Xbox 游戏 
+
+我唯一的问题是，Sarah Bond 在 03:32 说：“如果这是原生 PC 游戏？你就能直接在那上面玩。是仅限主机的游戏？你就能从云端进行串流……” 事情是这样的……我不想把我为 Xbox 购买的游戏通过云端来串流。我想大家都会同意，如果你买了一个 Xbox 游戏，你就希望能够在这台掌机上原生安装并游玩，而不是依赖云端串流
+
+我记得那个有胡子的家伙。“Series S 能做到 Series X 能做的事情，只是分辨率是 1440p。” 他们说的每一句话都不值得信任。
+
+
+*****
+
+####  itis1999  
+##### 120#       发表于 2025-8-21 08:21
+
+<blockquote>nage560 发表于 2025-6-9 07:41
+我关心厚度重量，还是sd那种举重机那就算了。</blockquote>
+高性能加上估计超过两小时的续航，重量低不了
+
+
+*****
+
+####  itis1999  
+##### 121#       发表于 2025-8-21 08:39
+
+<blockquote>泰坦失足 发表于 2025-6-9 10:23
+Z2A何止是SD的对手, 性能都和SD差不多
+
+到时候看看价格如何. 400刀的话甚至更低的话, 感觉有点戏. 
+
+Z2E那 ...</blockquote>
+z2e那款按照传言来看最低799
+
+
+*****
+
+####  itis1999  
+##### 122#       发表于 2025-8-21 08:54
+
+<blockquote>indtability 发表于 2025-6-9 18:41
+难说，看微软什么态度吧，对于生态来说，掌机的价格是很重要的因素，老任和 valve 还算比较拎得清的，掌 ...</blockquote>
+这玩意又不是只能玩微软游戏，ms不可能亏本卖机器的，甚至可能华硕也有话语权，更不可能不赚机器钱了，反正我是当便携电脑买，类比高端轻薄本价格贵也能接受
+
+
+*****
+
+####  clyde-wang  
+##### 123#       发表于 2025-8-21 08:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298759&amp;ptid=2253298" target="_blank">itis1999 发表于 2025-8-21 08:39</a>
+z2e那款按照传言来看最低799</blockquote>
+bilibilikun的爆料准确度还是可以的，899售价首发想要799估计挺难的
+
+
+*****
+
+####  zid99825  
+##### 124#       发表于 2025-8-21 09:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298819&amp;ptid=2253298" target="_blank">itis1999 发表于 2025-8-21 08:54</a>
+这玩意又不是只能玩微软游戏，ms不可能亏本卖机器的，甚至可能华硕也有话语权，更不可能不赚机器钱了，反 ...</blockquote>
+这东西就是华硕在卖，微软那边只是partner，当然不可能亏本卖的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+除了那个优化版的win11，掌机的常规渲染分辨率正好在AutoSR的好球区，只要效果好就行，这下评测sd没法用720p的渲染占优势了
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  dududa  
+##### 125#       发表于 2025-8-21 09:19
+
+掌机本身没啥意思，也就那个精简版win11有点看头。如果好用的话，我想给我的幻x装一个
+
+
+*****
+
+####  大暴死  
+##### 126#       发表于 2025-8-21 09:56
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298759&amp;ptid=2253298" target="_blank">itis1999 发表于 2025-8-21 08:39</a>
+z2e那款按照传言来看最低799</blockquote>
+目前z2e版的微星claw A8，pdd百补5k5，而国内零售指导价是6999，欧洲卖999欧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 25019PNF3C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  卡普空  
+##### 127#       发表于 2025-8-21 11:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298696&amp;ptid=2253298" target="_blank">泰坦失足 发表于 2025-8-21 08:02</a>
+https://www.youtube.com/watch?v=VTaboYwSyuc
+
+油 管评论比我想象的还刻薄
+
+我的 Xbox 账户里拥有 559 款游 ...</blockquote>
+下一代Xbox直接上win11系统吧，这样就不用纠结什么XPA了
+
+
+*****
+
+####  itis1999  
+##### 128#       发表于 2025-8-21 11:40
+
+<blockquote>大暴死 发表于 2025-8-21 09:56
+目前z2e版的微星claw A8，pdd百补5k5，而国内零售指导价是6999，欧洲卖999欧
+
+—— 来自 Xiaomi 25019PNF ...</blockquote>
+是的，国外就算卖的贵，国内也可能会便宜一点
+
+
+*****
+
+####  usoulo  
+##### 129#       发表于 2025-8-21 12:12
+
+这是历史上第一次发生一个公司的同世代掌机比主机还贵，而且还贵不少的情况吧？
+
+
+*****
+
+####  4869Bi  
+##### 130#       发表于 2025-8-21 12:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68299982&amp;ptid=2253298" target="_blank">usoulo 发表于 2025-8-21 12:12</a>
+这是历史上第一次发生一个公司的同世代掌机比主机还贵，而且还贵不少的情况吧？ ...</blockquote>
+ROG的主机比掌机贵
+
