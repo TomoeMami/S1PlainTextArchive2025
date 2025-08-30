@@ -2761,3 +2761,615 @@ RE9 是一套單人離線遊戲
 
 PlayStation.Blog发的采访，新信息很少。
 
+*****
+
+####  drx66  
+##### 269#       发表于 2025-8-20 07:35
+
+这实机面部表情有点难泵，明显能感到RE引擎有点跟不上了
+
+*****
+
+####  卡拉德利姆  
+##### 270#       发表于 2025-8-20 07:37
+
+女主还好，女主妈的表情像是面捕数据丢了一样
+
+
+*****
+
+####  Mikumiku831  
+##### 271#       发表于 2025-8-20 10:02
+
+看完感觉一坨 已经受不了这种谜语人剧情了
+
+
+*****
+
+####  eilot  
+##### 272#       发表于 2025-8-20 11:17
+
+今次的短片單純只是序章的對母親回憶吧，而且更只是少部份
+
+也沒有試玩內容
+
+只是交代為何不太想回到那家酒店原因
+
+迷語人劇情就一定了，就看內容多少
+
+*****
+
+####  桥洞底下盖小被  
+##### 273#       发表于 2025-8-20 11:19
+
+科隆这个片看完之后会能产生想玩想法的都是这个<img src="https://static.stage1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 274#       发表于 2025-8-20 11:27
+
+谜语人纱马剧情看乐了，还好没蹲直播
+
+<img src="https://img.stage1st.com/forum/202508/20/122741lob0phh1jcdczu6h.png" referrerpolicy="no-referrer">
+
+<strong>037.png</strong> (420 Bytes, 下载次数: 0)
+
+下载附件
+
+2025-8-20 11:27 上传
+
+
+*****
+
+####  plok201  
+##### 275#       发表于 2025-8-20 11:40
+
+<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不知道为啥，这播片给我一种隔壁荒野那个，卖的好是因为大家喜欢我们的剧情的感觉
+
+比起游玩变革和新系统，他重点是我们这过场多有美剧悬疑感
+
+
+*****
+
+####  eilot  
+##### 276#       发表于 2025-8-20 11:49
+
+直到現在還是不吐出實際遊戲畫面，連之前內部試玩版都沒有
+
+有點懷疑其開發進度
+
+看自家鬼武者每次都有些少實際遊戲內容吧
+
+你吐出些少弱氣小受的室內行動都好
+
+
+*****
+
+####  梅斯之围  
+##### 277#       发表于 2025-8-20 11:56
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嫌谜语播片的原来不是我一个
+
+*****
+
+####  u2deack  
+##### 278#       发表于 2025-8-20 11:58
+
+这种播片真的是没一点意义，虽然有很多人爱纠结生化到底在讲什么，但是真的有什么必要么
+还是等后续看玩法怎么说吧
+
+
+*****
+
+####  luodang007  
+##### 279#       发表于 2025-8-20 12:01
+
+有vr就行，一定要有呀<img src="https://static.stage1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Muteki_Link  
+##### 280#       发表于 2025-8-20 12:03
+
+发错了，风怒
+
+
+*****
+
+####  lbb3313725  
+##### 281#       发表于 2025-8-20 12:07
+
+无聊啊这预告，这种情节看了都烦。
+
+
+*****
+
+####  梅斯之围  
+##### 282#       发表于 2025-8-20 12:29
+
+说实话我对谁谁谁会不会露面一点兴趣都没有，我还以为都认为RE是弱剧情强游戏性的呢
+
+
+*****
+
+####  kcalb  
+##### 283#       发表于 2025-8-20 12:58
+
+八：某人的命运将迎来终结——指伊森挂了
+
+九：给浣熊市故人的安魂曲——指女主她妈挂了
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  1096beam  
+##### 284#       发表于 2025-8-20 13:06
+
+亲妈不会被改造成BOSS了吧
+
+
+*****
+
+####  bingo0716  
+##### 285#       发表于 2025-8-20 13:46
+
+不是说有线下试玩吗，有没有说啥时候。
+
+
+*****
+
+####  wsdbyh  
+##### 286#       发表于 2025-8-20 17:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68294697&amp;ptid=2252759" target="_blank">bingo0716 发表于 2025-8-20 13:46</a>
+
+不是说有线下试玩吗，有没有说啥时候。</blockquote>
+大概今天晚上开始陆陆续续会有展会试玩视频放上来的了
+
+
+*****
+
+####  伊丽虾皇VI  
+##### 287#       发表于 2025-8-20 21:20
+
+这次的追击怪感觉压迫力好强，之前都是人形的这次异形巨物感觉吓人不少
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  林檎  
+##### 288#       发表于 2025-8-20 22:23
+
+看了下试玩，什么破玩意，女主一直鬼叫，跑步速度跟零有得一拼
+
+
+*****
+
+####  水边井  
+##### 289#       发表于 2025-8-20 22:52
+
+纹章钥匙、保险丝，真是老三样<img src="https://static.stage1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  weige  
+##### 290#       发表于 2025-8-20 22:54
+
+女主是坡脚？怎么跑起来散步似的
+
+
+*****
+
+####  zqqwe  
+##### 291#       发表于 2025-8-20 23:08
+
+这第三人称fov贼低看着头晕，吓人演出还是基于第一人称做的，还是省钱了<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">女主每次被吓到就一直呕吼呕吼挺喜感
+
+
+*****
+
+####  eilot  
+##### 292#       发表于 2025-8-21 02:58
+
+文弱書生FBI...看來又是看著她的成長史吧
+
+不過今集她媽媽也有出場，不要說當年她未死透，一直被當苗床吧...(又玩生7劇情?生6的雪莉2人中期被捉後都好像說測試了半年)
+
+
+*****
+
+####  洛亚替身  
+##### 293#       发表于 2025-8-21 09:43
+
+不聊剧情，实机本身给我感觉像小岛的PT，卡婊上代人偶宅邸试手，这部有可能大半部流程都能把恐怖要素做到和人偶宅邸一个水平<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nagitoY  
+##### 294#       发表于 2025-8-21 09:44
+
+女主太菜鸡了，一惊一乍的。看实机的时候还没注意到怪，先被女主的尖叫给吓到了<img src="https://static.stage1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yidian  
+##### 295#       发表于 2025-8-21 10:55
+
+<blockquote>洛亚替身 发表于 2025-8-21 09:43
+不聊剧情，实机本身给我感觉像小岛的PT，卡婊上代人偶宅邸试手，这部有可能大半部流程都能把恐怖要素做到和 ...</blockquote>
+感觉一点没pt氛围像村庄翻版，而且我看不是可以切换人称吗？这不就是和村庄一样，我怀疑剧情也差不多，唯一疑惑就是这是故事从哪开始接的
+
+*****
+
+####  红魔馆的糖  
+##### 296#       发表于 2025-8-21 10:59
+
+这玩意一点兴趣没有，看着不是那种战点式，而是类似寂静岭那种模式<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  chris1987  
+##### 297#       发表于 2025-8-21 11:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">第三视角下的女主太喜感了。。
+
+*****
+
+####  JOJO42  
+##### 298#       发表于 2025-8-21 11:24
+
+<img src="https://img.stage1st.com/forum/202508/21/112351sdqvrafd4tazv7jf.jpg" referrerpolicy="no-referrer">
+
+<strong>GyzaC1cXMAEJKs-.jpg</strong> (205.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 11:23 上传
+
+外网这猜想还挺地狱的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  zqqwe  
+##### 299#       发表于 2025-8-21 12:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68299728&amp;ptid=2252759" target="_blank">JOJO42 发表于 2025-8-21 11:24</a>
+
+外网这猜想还挺地狱的</blockquote>
+
+我觉得这算明示吧，甚至更像8代克里斯黑化那种烟雾弹。不过alyssa从ps2版那个冷峻御姐变成路路人水平的洋bba还是太遗憾了
+
+<img src="https://img.stage1st.com/forum/202508/21/124528rzjf1xu4j2cr2jfb.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_0538.jpeg</strong> (68.91 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-21 12:45 上传
+
+
+*****
+
+####  JOJO42  
+##### 300#       发表于 2025-8-21 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68300116&amp;ptid=2252759" target="_blank">zqqwe 发表于 2025-8-21 12:44</a>
+
+我觉得这算明示吧，甚至更像8代克里斯黑化那种烟雾弹。不过alyssa从ps2版那个冷峻御姐变成路路人水平的洋 ...</blockquote>
+估计这代对应上代父爱如山，最后是母爱终极牺牲了吧
+
+
+*****
+
+####  Alect  
+##### 301#       发表于 2025-8-21 15:31
+
+看了一眼最近科隆这几个试玩。这不就RE7开始那套宣传嘛。都是开场低信息量+没枪的普通人主角。都是狭窄地形+追踪者类敌人+无反抗能力，甚至还还原了RE7开头岳父破墙。
+
+不过这种东西说白了应该也就20分钟左右保持个体验的作用，玩多周目只会觉得烦，因为本质上还是偏脚本演出，像8的鬼屋和7的生日游戏这种都是一周目惊艳，多周目只想赶紧Skip的。科隆这个片开完之后应该就是有战斗系统部分的游玩流程了，所以这次就藏到这里了。
+
+然后又看了几个不同的游玩片段，之前还有点怀疑的动画部分果然就那样了。。初见杀/Jump Scare/超血腥场景基本都是强制切成第一人称的，然后展现人物动作局促不安/恐慌，女主吓得连滚带爬的时候第三人称有做独特的动作它又给你切回第三人称，只能说很符合我对于Capcom关于成本把控这一块的印象（做两种果然是不太可能的）
+
+
+*****
+
+####  eilot  
+##### 302#       发表于 2025-8-21 15:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68300909&amp;ptid=2252759" target="_blank">Alect 发表于 2025-8-21 15:31</a>
+
+看了一眼最近科隆这几个试玩。这不就RE7开始那套宣传嘛。都是开场低信息量+没枪的普通人主角。都是狭窄地形 ...</blockquote>
+8的人偶屋在老豆編時還不算噁心，是女兒編加上捉迷藏捉鬼機制才難打，通關了就放棄，而女兒編這麼的BOSS戰就是機制戰來不算難打
+
+今次試玩部份就是在被捉鬼期間還要不停繞路來解迷，被發現不是即死就是重傷吧，玩熟了可能可以不用火機來照明，只要不是像clock tower3或異形隔離那種只要發出聲音，5秒內異形就會來到你身體，無論你用甚麼武器反擊，都只會即時gameover的搞笑情況就足夠了
+
+這時候，風靈月宗能否做到你看我不到或無敵(你捉不到我)，不扣血是沒用的因為多數都是即死gameover技而不是扣100血(滿血也是100)的設置
+
+
+*****
+
+####  Alect  
+##### 303#       发表于 2025-8-21 16:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301087&amp;ptid=2252759" target="_blank">eilot 发表于 2025-8-21 15:59</a>
+
+8的人偶屋在老豆編時還不算噁心，是女兒編加上捉迷藏捉鬼機制才難打，通關了就放棄，而女兒編這麼的BOSS ...</blockquote>
+Capcom做游戏还是相对保守的，所以这种剥夺玩家战斗力的追逐战一般不会搞的太难（容易造成太强挫败感），RE9现在开头这个拿保险丝的段落我看了几个也只是重伤，而且还有扔瓶子引怪这种很多潜行游戏常用的技巧。像异形隔离这种属于非脚本，AI会根据玩家行为产生位置变化的，压迫感更强，理论上重玩性更好，但是这样作为纯恐怖片段更容易劝退人，像Capcon这种主要还是想保销量的应该不会采用。像RE8的鬼婴也就专家模式换了个位置，但整体还是偏向脚本预设那种模式。
+
+
+*****
+
+####  辞冬  
+##### 304#       发表于 2025-8-21 17:04
+
+看到个评论说这么多年还是虚空开门开灯开抽屉，没有tlou那种完善的交互动画。我觉得他说的有道理，但又觉得那样节奏会很慢<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  eilot  
+##### 305#       发表于 2025-8-21 17:38
+
+ 本帖最后由 eilot 于 2025-8-21 17:39 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301188&amp;ptid=2252759" target="_blank">Alect 发表于 2025-8-21 16:16</a>
+
+Capcom做游戏还是相对保守的，所以这种剥夺玩家战斗力的追逐战一般不会搞的太难（容易造成太强挫败感）， ...</blockquote>
+記得在RE8的女兒編，人偶屋被捉就會重傷，捉了3次就會死(所以轉了第3身視點來玩)
+
+而死了第2次後，難度會明顯調低了，低難度下捉了你的那隻人偶也會消失(少了一隻巡邏，但我又是死了)
+
+這裡真是重玩了無數次，最後放棄了無傷這區域這個得分成視
+
+老豆編的鬼嬰反而沒甚麼難度，只是換了位置吧
+
+
+*****
+
+####  bingo0716  
+##### 306#       发表于 2025-8-21 18:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301453&amp;ptid=2252759" target="_blank">辞冬 发表于 2025-8-21 17:04</a>
+
+看到个评论说这么多年还是虚空开门开灯开抽屉，没有tlou那种完善的交互动画。我觉得他说的有道理，但又觉得 ...</blockquote>
+如果说这是个下放的技术，没有确实会可惜
+
+但是如果是个耗费资源的技术，像TLOU2的绳子，可穿脱的外套，枪械改装等技术上很厉害，实现很难，加入了又对游戏没有任何实际上的提升，以卡表最近的项目管理来看，那就是另外一种怪猎荒野的生态，华而不实，没什么意义。
+
+*****
+
+####  DelayNoMore  
+##### 307#       发表于 2025-8-21 18:07
+
+开锁怎么还是上世纪的单独一个🔑演出，独立游戏还算了，这是3a啊
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  天选之子  
+##### 308#       发表于 2025-8-21 18:08
+
+<blockquote>DelayNoMore 发表于 2025-8-21 18:07
+开锁怎么还是上世纪的单独一个🔑演出，独立游戏还算了，这是3a啊
+
+—— 来自 鹅球 v3.5.99-alpha ...</blockquote>
+说明卡普空的技术力还停留在上个世代。
+
+
+*****
+
+####  godless2020  
+##### 309#       发表于 2025-8-21 18:30
+
+TGS里昂会登场吧。。。。。。。。。
+
+
+*****
+
+####  plok201  
+##### 310#       发表于 2025-8-21 19:07
+
+浣熊市大派对，123代谁没来谁尴尬吧
+
+特别是卡婊还整了个全明星手游，我不信他敢把这群旧主角雪藏，放弃一个正作宣传他们的机会
+
+
+*****
+
+####  Rintani_Yahato  
+##### 311#       发表于 2025-8-21 20:37
+
+这大只怪包是Alyssa的，而且肯定后面还会有残存意识认出女主保护女儿牺牲自己升华母爱的烂俗桥段
+
+
+*****
+
+####  dhddhh  
+##### 312#       发表于 2025-8-21 22:17
+
+对re引擎从7开始到现在的9的画面表现已经有些厌倦了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真人脸模这路线也顺便微调一下。
+
+
+*****
+
+####  kalavinka  
+##### 313#       发表于 2025-8-21 22:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301868&amp;ptid=2252759" target="_blank">DelayNoMore 发表于 2025-8-21 18:07</a>
+开锁怎么还是上世纪的单独一个馃攽演出，独立游戏还算了，这是3a啊
+
+—— 来自 鹅球 v3.5.99-alpha ...</blockquote>
+开锁转阀门这些应该是故意的吧，re祖传之法，以后估计也不会改<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 314#       发表于 2025-8-22 06:50
+
+阿丽莎还不如序章就退场，爆发难得有个角色进正传结果被霍霍成怪物也太惨了
+
+<img src="https://img.stage1st.com/forum/202508/22/074920k888t60bfxyu2t8x.png" referrerpolicy="no-referrer">
+
+<strong>001.png</strong> (358 Bytes, 下载次数: 0)
+
+下载附件
+
+2025-8-22 06:49 上传
+
+
+*****
+
+####  哈罗  
+##### 315#       发表于 2025-8-22 08:29
+
+这追追看上去跟以往区别挺大的，他并不是很吓人，行动笨拙，面部丑陋，甚至让人心生怜悯，可能在剧情上就是要这么展开
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 316#       发表于 2025-8-22 10:03
+
+后面重制五代然后重启后续时间线吧，角色年龄也别跟着显示时间走了，老角色也没出场几次就五十了都<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
+
+*****
+
+####  Muteki_Link  
+##### 317#       发表于 2025-8-22 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68299728&amp;ptid=2252759" target="_blank">JOJO42 发表于 2025-8-21 11:24</a>
+
+外网这猜想还挺地狱的</blockquote>
+这猜想还是有几分可能的，一个是boss战地点就是当年她妈遇害的酒店。还有一个我看评论提到了也许是过度解读，但boss把人双手抓起来咬下去的处决方式还有本身的骇人造型确实会让人联想起农神吞噬其子那幅画，那背后的隐喻就不言而喻了。
+
+就是真要这样的话制作组这活有点狠了，好歹也是爆发里的主角之一。不过不少人看这段试玩都会联想到rebio的莉莎，那个也算是生化史里排上号的罪恶剧情了
+
+
+*****
+
+####  1096beam  
+##### 318#       发表于 2025-8-22 10:57
+
+莉莎也是为了找妈到处乱窜，现在可不就找到新妈了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  csolfans  
+##### 319#       发表于 2025-8-22 12:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68304583&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2025-8-22 10:49</a>
+这猜想还是有几分可能的，一个是boss战地点就是当年她妈遇害的酒店。还有一个我看评论提到了也许是过度解 ...</blockquote>
+boss战的地点是在浣熊市附近的疗养院
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+*****
+
+####  shinra-01  
+##### 320#       发表于 2025-8-22 12:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68304583&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2025-8-22 10:49</a>
+
+这猜想还是有几分可能的，一个是boss战地点就是当年她妈遇害的酒店。还有一个我看评论提到了也许是过度解 ...</blockquote>
+demo里的是疗养院，不是遇害的那个鹪木旅馆
+
+
+*****
+
+####  ww-tsl  
+##### 321#       发表于 2025-8-22 16:14
+
+用“敌人害怕光亮，无法进入明亮的环境”来制作安全屋确实是个巨大的改进，并且还能随之产生“灯光熄灭会导致安全屋失效”这个新要素。实际上相当于次级的地形环境改变。
+
+正式游戏中应该会出现“主动制造明亮区域以逃离/对付敌人”这种内容。
+
+
+*****
+
+####  Muteki_Link  
+##### 322#       发表于 2025-8-22 17:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68305086&amp;ptid=2252759" target="_blank">csolfans 发表于 2025-8-22 12:30</a>
+
+boss战的地点是在浣熊市附近的疗养院
+
+—— 来自 鹅球 v3.3.96-alpha</blockquote>
+好吧，这个被误导了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JOJO42  
+##### 323#       发表于 2025-8-22 20:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68306132&amp;ptid=2252759" target="_blank">ww-tsl 发表于 2025-8-22 16:14</a>
+
+用“敌人害怕光亮，无法进入明亮的环境”来制作安全屋确实是个巨大的改进，并且还能随之产生“灯光熄灭会导 ...</blockquote>
+这不就心灵杀手2那套，但我不觉得卡婊会在这块拓展太多
+
+
+*****
+
+####  yidian  
+##### 324#       发表于 2025-8-25 09:04
+
+希望做的有心灵杀手水平，感觉会比八好玩
+
+
+*****
+
+####  ronac  
+##### 325#       发表于 2025-8-25 12:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68304583&amp;ptid=2252759" target="_blank">Muteki_Link 发表于 2025-8-22 10:49</a>
+
+这猜想还是有几分可能的，一个是boss战地点就是当年她妈遇害的酒店。还有一个我看评论提到了也许是过度解 ...</blockquote>
+维罗妮卡的史蒂夫：是年上女大学生蒙蔽了我的双眼
+
+
+*****
+
+####  Muteki_Link  
+##### 326#       发表于 2025-8-25 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68318470&amp;ptid=2252759" target="_blank">ronac 发表于 2025-8-25 12:35</a>
+
+维罗妮卡的史蒂夫：是年上女大学生蒙蔽了我的双眼</blockquote>
+老威坟头草都老高了，史蒂夫还没下文。克莱尔在后续启示录里或者动画电影里也没再提过<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  理子石  
+##### 327#       发表于 2025-8-27 19:20
+
+看试玩还挺恐怖的
+
+
+*****
+
+####  kos_mos  
+##### 328#       发表于 2025-8-28 00:32
+
+fami通访谈
+
+艾丽莎外以外也有和浣熊市事件联系上的地方。不知道过去的作品也能有100%的乐趣，当然如果知道那么就是150%的乐趣。
+
+明确demo的场所不是浣熊市的设施。
+
+demo不是7、8体验版那样别轴的故事，就是本篇的一部分剪辑出来作为demo用arrange下。
+
+空色带本篇也会登场。
+[https://www.famitsu.com/article/202508/50833](https://www.famitsu.com/article/202508/50833)
+

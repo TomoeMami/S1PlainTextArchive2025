@@ -1979,3 +1979,930 @@ pv从头到尾都在完美闪避和格挡，看来是capcom只狼<img src="https
 
 我只能说这不是我的一闪。
 
+*****
+
+####  zid99825  
+##### 203#       发表于 2025-8-19 14:37
+
+<img src="https://img.stage1st.com/forum/202508/19/143412vdgzorhgwnz4drr0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (218.1 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-19 14:34 上传
+
+北京时间8月21晚上10点10分左右，Xbox@gamescom Broadcast 2025直播会有对应游戏画面
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 204#       发表于 2025-8-20 07:12
+
+一闪回来了？
+
+
+*****
+
+####  卡拉德利姆  
+##### 205#       发表于 2025-8-20 07:29
+
+这作每发一个片我都想吐槽一句这哪里像三船敏郎了
+
+*****
+
+####  drx66  
+##### 206#       发表于 2025-8-20 07:30
+
+00:52秒才是一闪，小怪砍成两半直接秒
+
+
+*****
+
+####  kuarwbwe  
+##### 207#       发表于 2025-8-20 07:55
+
+确实。男主脸模突出一个可能像三船，但像三船不可能。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这片看着感觉好了点，可能是怪设比较合胃口吧。我应该还是会考虑玩一下。
+
+
+*****
+
+####  放大镜  
+##### 208#       发表于 2025-8-20 08:39
+
+做了那么多场景互动，至少前期肯定是不会让你闪两刀就清空房间的
+
+新推的这套偏斜/受流系统才是系统核心，大概吧，还是别惦记旧作的操作节奏了
+
+
+*****
+
+####  stair楼梯  
+##### 209#       发表于 2025-8-20 09:58
+
+感觉这宫本武藏几个角度是真的很像甄子丹，尤其是侧面，老实说三船敏郎脸明显要宽一点，没这么瘦
+
+
+*****
+
+####  手铐君  
+##### 210#       发表于 2025-8-20 10:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68293115&amp;ptid=2210366" target="_blank">stair楼梯 发表于 2025-8-20 09:58</a>
+感觉这宫本武藏几个角度是真的很像甄子丹，尤其是侧面，老实说三船敏郎脸明显要宽一点，没这么瘦 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我不认识这个脸模，但是第一个pv出来的时候我就觉得像甄子丹
+
+
+*****
+
+####  conanoysq  
+##### 211#       发表于 2025-8-20 10:32
+
+新PV里面对上boss一击的卸力特写镜头的表现力还是非常强的，不过对上小兵的一闪，人物会有一个清晰的突然加速的动作，感觉有点突兀，还不如以前白光一闪手起刀落那样利落啊
+
+
+*****
+
+####  猫出没注意  
+##### 212#       发表于 2025-8-20 11:08
+
+[https://www.youtube.com/watch?v=TtFrm59tUc4](https://www.youtube.com/watch?v=TtFrm59tUc4)
+
+一段实机视频
+
+
+*****
+
+####  Leliel  
+##### 213#       发表于 2025-8-20 11:19
+
+看了实机演示发现原来主打的是晕眩然后处决
+
+
+*****
+
+####  djw1984  
+##### 214#       发表于 2025-8-20 11:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68293700&amp;ptid=2210366" target="_blank">猫出没注意 发表于 2025-8-20 11:08</a>
+
+https://www.youtube.com/watch?v=TtFrm59tUc4
+
+一段实机视频</blockquote>
+看着有点一般，卡表实验作无疑
+
+
+*****
+
+####  汪达  
+##### 215#       发表于 2025-8-20 11:35
+
+看样子一闪动作会和场景有交互，实机视频1:06处一个卸力把小怪引到旁边的石碑上撞晕了，就是不知道这种细节够不够丰富
+
+这个UI黄的是血条红的是体力，有点不适应<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  利维坦与霍布斯  
+##### 216#       发表于 2025-8-20 11:37
+
+又多了和黑钟馗题材撞车的，笑哭
+
+
+*****
+
+####  outerish  
+##### 217#       发表于 2025-8-20 11:40
+
+看起来是侧重防守反击的战斗系统，明年还有仁王3，有得爽了
+
+
+*****
+
+####  JOJO42  
+##### 218#       发表于 2025-8-20 11:50
+
+三船各个时期脸上呈现的气质都不一样，青年时期阴郁俊俏，中年时期痞气英武，游戏的这个感觉是哪个都差点意思
+
+*****
+
+####  NTの末裔  
+##### 219#       发表于 2025-8-20 11:52
+
+看了**的视频，玩法彻底改了，基本是以普攻+武技的打法，一闪的作用感觉是明显 大削弱了。确实是有点像卡普空的实验性质的作品
+
+
+*****
+
+####  zxlice  
+##### 220#       发表于 2025-8-20 13:30
+
+这什么，怪物猎人味儿好重<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JOJO42  
+##### 221#       发表于 2025-8-20 14:29
+
+实机演示现在已经下架了，不过这科隆实在是太草台了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，昨天忍龙的预告提前泄露，今天鬼武者的实机也提前泄露，不过看视频他这硬锁明显调教的有问题
+
+*****
+
+####  葵  
+##### 222#       发表于 2025-8-20 14:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68292285&amp;ptid=2210366" target="_blank">卡拉德利姆 发表于 2025-8-20 07:29</a>
+
+这作每发一个片我都想吐槽一句这哪里像三船敏郎了</blockquote>
+一点不像三船，但是每个预告都很像甄子丹<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 223#         楼主| 发表于 2025-8-20 15:11
+
+PV3：[https://m.youtube.com/watch?v=Q3Zg7KRdxfw](https://m.youtube.com/watch?v=Q3Zg7KRdxfw)
+
+
+*****
+
+####  outerish  
+##### 224#       发表于 2025-8-20 20:10
+
+r
+
+<img src="https://img.stage1st.com/forum/202508/20/200713wek6w1of1lv49zvw.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>character_sub2_model.webp</strong> (403.27 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 20:07 上传
+
+<img src="https://img.stage1st.com/forum/202508/20/200748w4hrqq0j7qsqh3xm.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>character_sub4_model.webp</strong> (349.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 20:07 上传
+
+<img src="https://img.stage1st.com/forum/202508/20/200815n4px7z4rri4tmp4p.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>character_sub3_model.webp</strong> (287.46 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 20:08 上传
+
+<img src="https://img.stage1st.com/forum/202508/20/200914targiaakm22rrrzv.webp" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>character_enemy2_model.webp</strong> (206.63 KB, 下载次数: 0)
+
+下载附件
+
+2025-8-20 20:09 上传
+
+妖怪设计真不错
+
+
+*****
+
+####  火红之眼  
+##### 225#       发表于 2025-8-20 21:11
+
+看了下电击这8分钟试玩，动作还是太僵硬了点，不过看起来很讲究交互，受流这感觉还挺好的
+
+
+*****
+
+####  seedees3  
+##### 226#       发表于 2025-8-20 21:19
+
+感觉有点小品，也没什么新意
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 227#       发表于 2025-8-20 22:09
+
+连处决都冠上一闪的名头......<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  monikaca  
+##### 228#       发表于 2025-8-20 22:13
+
+这剑砍人的感觉好像更偏真实系，好评。
+
+*****
+
+####  drx66  
+##### 229#       发表于 2025-8-20 22:13
+
+主打一个强交互，感觉会好玩
+
+
+*****
+
+####  若菜  
+##### 230#       发表于 2025-8-20 22:51
+
+传统一闪还在，弹一闪改成了需要累计能量槽，但是好处是普通防御也能积蓄能量槽。高手可以继续来一闪和完美弹一闪。
+
+连续处决不错，不知道还有没有连续一闪了，也没说蓄力攻击和战术壳
+
+
+*****
+
+####  monikaca  
+##### 231#       发表于 2025-8-20 23:02
+
+这小次郎BOSS战也太帅了吧，怎么这都还有人不满意的？？好奇怪的弹幕和评论。
+
+
+*****
+
+####  zqqwe  
+##### 232#       发表于 2025-8-20 23:07
+
+pv里的斩击音效听起来很差，但实机演示戴耳机听起来却超带感，这下期待拉起来了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  nage560  
+##### 233#       发表于 2025-8-20 23:11
+
+别的都好，但这一闪特效怎么做的这么烂，完全没有老鬼武者有气势。
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 234#       发表于 2025-8-20 23:17
+
+不过这游戏的剑戟部分就像是更慢但打击感更好的对马岛
+
+*****
+
+####  若菜  
+##### 235#       发表于 2025-8-20 23:17
+
+<blockquote>monikaca 发表于 2025-8-20 23:02
+这小次郎BOSS战也太帅了吧，怎么这都还有人不满意的？？好奇怪的弹幕和评论。 ...</blockquote>
+act观感和操作者的实力联系太大了（，有的菜鸡一闪都没用出来导致上面有的人都以为没传统一闪。
+
+
+*****
+
+####  karastar  
+##### 236#       发表于 2025-8-20 23:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68297708&amp;ptid=2210366" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-8-20 23:17</a>
+不过这游戏的剑戟部分就像是更慢但打击感更好的对马岛</blockquote>
+不太像对马岛吧，还是说动作比较写实？
+
+
+*****
+
+####  天选之子  
+##### 237#       发表于 2025-8-21 00:00
+
+现在看起来至少有两种一闪：传统一闪和处决一闪。年轻人反应快用传统一闪，中老年玩家反应慢用处决一闪。
+
+
+*****
+
+####  JOJO42  
+##### 238#       发表于 2025-8-21 00:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68297708&amp;ptid=2210366" target="_blank">Dai-Dai-Dai-Dai 发表于 2025-8-20 23:17</a>
+
+不过这游戏的剑戟部分就像是更慢但打击感更好的对马岛</blockquote>
+这块确实怪，三船自己演的那些剑戟片速度也没这么慢，或者说那么匀速，速度的起伏松弛还是很明显的
+
+
+*****
+
+####  reficul  
+##### 239#       发表于 2025-8-21 00:33
+
+你觉得你是一闪吗？
+
+*****
+
+####  性兽阿怪  
+##### 240#       发表于 2025-8-21 00:34
+
+写实化的动作是不是能更容易触发一闪了，这是好事啊
+
+
+*****
+
+####  慕兰  
+##### 241#       发表于 2025-8-21 01:23
+
+动作太自然了，卡普空还是牛逼啊。没玩过这么慢节奏的防反战斗，挺新的
+
+
+*****
+
+####  Suljo  
+##### 242#       发表于 2025-8-21 01:37
+
+老老实实做成椿三十郎就完了，非要做jb青年三船
+
+—— 来自 vivo V2324A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  天选之子  
+##### 243#       发表于 2025-8-21 01:43
+
+<blockquote>Suljo 发表于 2025-8-21 01:37
+老老实实做成椿三十郎就完了，非要做jb青年三船
+
+—— 来自 vivo V2324A, Android 15, 鹅球 v3.5.99 ...</blockquote>
+
+女玩家的钱也是钱啊，不是每个IP都能像MGS那样用老头做主角还能卖几百万份的。
+
+
+*****
+
+####  天悬星河  
+##### 244#       发表于 2025-8-21 02:09
+
+看起来思路是对的，传统一闪放到现在已经并不足够好玩了
+
+
+*****
+
+####  葵  
+##### 245#       发表于 2025-8-21 02:12
+
+看了媒体实机演示期待值拉回来一点<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天选之子  
+##### 246#       发表于 2025-8-21 02:45
+
+<blockquote>天悬星河 发表于 2025-8-21 02:09
+看起来思路是对的，传统一闪放到现在已经并不足够好玩了</blockquote>
+传统一闪出到三代的时候已经有点审美疲劳了，所以新鬼武者搞了一个崩一闪（把敌人踢/打破防就能发动一闪），但是玩家反响不好，然后就没有然后了。
+
+
+*****
+
+####  姬茧墨  
+##### 247#       发表于 2025-8-21 02:57
+
+这个移动和重心的摇晃感做得太好了，特别是把这个重量感融合进战斗和弹反当中，这种自然的衔接感确实只有卡表能做得如此真实
+
+切实能感受到剑术的步法走向和卸招的力道流向
+
+
+*****
+
+####  赤井稻妻  
+##### 248#       发表于 2025-8-21 09:44
+
+把boss的条打空可以直接秒，怎么有点像只狼？
+
+如果卡普空这能做个自己的只狼也很爽就是了，在我心中只狼已经算是这些年来的第一act了
+
+
+*****
+
+####  九十九忍  
+##### 249#       发表于 2025-8-21 09:51
+
+看起来很屌嘛，尤其是断肢开了后
+
+
+*****
+
+####  吃鸡南小鸟  
+##### 250#       发表于 2025-8-21 09:59
+
+挺帅的，想玩
+
+
+*****
+
+####  Markorca  
+##### 251#       发表于 2025-8-21 10:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68298417&amp;ptid=2210366" target="_blank">天选之子 发表于 2025-8-21 02:45</a>
+
+传统一闪出到三代的时候已经有点审美疲劳了，所以新鬼武者搞了一个崩一闪（把敌人踢/打破防就能发动一闪 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">崩一闪其实初代就有，只是只能对少数几个拿着盾牌的敌人用
+
+
+*****
+
+####  Leliel  
+##### 252#       发表于 2025-8-21 14:48
+
+ 本帖最后由 Leliel 于 2025-8-21 14:54 编辑 
+
+看了几个试玩视频，里面都只有介绍崩一闪，和累计精准闪避后的一闪
+
+传统弹一闪应该没了，算是被整合到崩一闪的体系里了
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">普通一闪还需要藏吗，到底有没有
+
+
+*****
+
+####  monikaca  
+##### 253#       发表于 2025-8-21 15:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68300650&amp;ptid=2210366" target="_blank">Leliel 发表于 2025-8-21 14:48</a>
+
+看了几个试玩视频，里面都只有介绍崩一闪，和累计精准闪避后的一闪
+
+传统弹一闪应该没了，算是被整合到崩一 ...</blockquote>
+有，你看IGN和AV9G的视频都有常规一闪。
+
+
+*****
+
+####  wthall  
+##### 254#       发表于 2025-8-21 16:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68300920&amp;ptid=2210366" target="_blank">monikaca 发表于 2025-8-21 15:32</a>
+
+有，你看IGN和AV9G的视频都有常规一闪。</blockquote>
+而且现在的普通一闪有一个瞬身的动作
+
+
+*****
+
+####  若菜  
+##### 255#       发表于 2025-8-21 16:36
+
+<blockquote>Leliel 发表于 2025-8-21 14:48
+看了几个试玩视频，里面都只有介绍崩一闪，和累计精准闪避后的一闪
+
+传统弹一闪应该没了，算是被整合到崩一 ...</blockquote>
+gs那个就说了，有两种更高级的一闪，打中之前攻击的一闪，打中之前闪避后的一闪。那个视频里也有演示。
+
+当然普通一闪风险太大，你不能指望这些媒体玩得来，我之前玩2复刻也都是避一闪或者绕圈跑躲开攻击一闪，失败了也没惩罚。
+
+这次改动我是非常满意的的，老本没扔，还加了更适合大众玩家的新东西。
+
+*****
+
+####  若菜  
+##### 256#       发表于 2025-8-21 16:37
+
+<blockquote>wthall 发表于 2025-8-21 16:31
+而且现在的普通一闪有一个瞬身的动作</blockquote>
+有没闪身的，大部分媒体用不出来····
+
+
+*****
+
+####  Leliel  
+##### 257#       发表于 2025-8-21 16:44
+
+<blockquote>若菜 发表于 2025-8-21 16:36
+gs那个就说了，有两种更高级的一闪，打中之前攻击的一闪，打中之前闪避后的一闪。那个视频里也有演示。
+
+ ...</blockquote>
+a9转发的视频里我看到有一次对杂兵的一闪应该就是普通一闪
+
+另精准闪避是可以累积槽，然后发动某种必杀攻击
+
+就不晓得这一次还有没有传统意义上的“避一闪”技巧了
+
+
+*****
+
+####  wthall  
+##### 258#       发表于 2025-8-21 16:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301352&amp;ptid=2210366" target="_blank">Leliel 发表于 2025-8-21 16:44</a>
+
+a9转发的视频里我看到有一次对杂兵的一闪应该就是普通一闪
+
+另精准闪避是可以累积槽，然后发动某种必杀攻 ...</blockquote>
+侧一闪其实是利用模型的判定进行的一闪，本质还是普通一闪。
+
+只要敌人的攻击box仍有判定范围，那么侧一闪就不会消失。
+
+*****
+
+####  若菜  
+##### 259#       发表于 2025-8-21 16:51
+
+<blockquote>wthall 发表于 2025-8-21 16:48
+侧一闪其实是利用模型的判定进行的一闪，本质还是普通一闪。
+
+只要敌人的攻击box仍有判定范围，那么侧一 ...</blockquote>
+以前没特效，这次加了身体残影一样的特效，以前回避一闪也不需要非得回避，走位躲开也行。
+
+
+*****
+
+####  Leliel  
+##### 260#       发表于 2025-8-21 17:04
+
+ 本帖最后由 Leliel 于 2025-8-21 17:05 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301379&amp;ptid=2210366" target="_blank">wthall 发表于 2025-8-21 16:48</a>
+
+侧一闪其实是利用模型的判定进行的一闪，本质还是普通一闪。
+
+只要敌人的攻击box仍有判定范围，那么侧一 ...</blockquote>
+这恐怕得取决于新作的判定规则和设计思路
+
+虽说避一闪只是一种技巧的描述，在系统层面只是普通一闪
+
+但是打个比方说，旧作里敌人有举刀下劈的攻击，这个攻击会在刀落地时发生一闪窗口期
+
+可见在旧作在设计的时候是有考虑到让玩家可先回避再发动一闪
+
+
+*****
+
+####  天选之子  
+##### 261#       发表于 2025-8-21 18:03
+
+ 本帖最后由 天选之子 于 2025-8-21 18:04 编辑 
+<blockquote>赤井稻妻 发表于 2025-8-21 09:44
+把boss的条打空可以直接秒，怎么有点像只狼？
+
+如果卡普空这能做个自己的只狼也很爽就是了，在我心中只狼已 ...</blockquote>
+
+宫崎英高对游戏界的一大贡献就是魂血狼环启发了很多游戏制作团队——“我想要的游戏效果就是这个样子！”
+
+
+*****
+
+####  hkguty  
+##### 262#       发表于 2025-8-21 20:52
+
+节奏有点慢，那种剑刃交锋的感觉很棒，感觉很独特
+
+
+*****
+
+####  夜雨秋水  
+##### 263#       发表于 2025-8-21 21:21
+
+佐佐木必是可控吧，两个可控地图利用率翻倍<img src="https://static.stage1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  kalavinka  
+##### 264#       发表于 2025-8-21 22:13
+
+steam上新闻页面写着这几个视频断肢是关掉的，感觉开了配合一闪应该会很爽<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  conanoysq  
+##### 265#       发表于 2025-8-22 08:48
+
+看到国内有去科隆现场玩儿的了，有中配
+
+
+*****
+
+####  kuarwbwe  
+##### 266#       发表于 2025-8-22 08:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68303993&amp;ptid=2210366" target="_blank">conanoysq 发表于 2025-8-22 08:48</a>
+看到国内有去科隆现场玩儿的了，有中配</blockquote>
+这游戏开steam商店页面就标明了有中配。
+
+
+*****
+
+####  myArtoria  
+##### 267#       发表于 2025-8-22 08:58
+
+新视频里有个武藏甩手再挠头的动作，感觉挺有三船电影里的味道的
+
+*****
+
+####  thez  
+##### 268#       发表于 2025-8-22 09:01
+
+中配质量还可以
+
+
+*****
+
+####  dicktt  
+##### 269#       发表于 2025-8-22 11:03
+
+打斗手感像荣耀战魂<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  千本blur  
+##### 270#       发表于 2025-8-23 16:03
+
+看试完看试玩感觉这就是我想要的剑斗游戏
+
+*****
+
+####  慕容断月  
+##### 271#       发表于 2025-8-23 17:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67897396&amp;ptid=2210366" target="_blank">沉睡城市 发表于 2025-6-7 15:21</a>
+另外，武藏的配音是谁？听起来好像是阿部宽？</blockquote>
+趴地上说不要停下来的那个<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  灼热的小市民  
+##### 272#       发表于 2025-8-23 17:35
+
+虽然但是这个用刀受け流し出火花的动作真的好帅啊
+
+
+*****
+
+####  真实之影  
+##### 273#       发表于 2025-8-25 00:24
+
+[https://www.youtube.com/watch?v=cykCLpvR2gw](https://www.youtube.com/watch?v=cykCLpvR2gw)
+
+找了个偏向一闪的试玩演示
+
+
+*****
+
+####  57042711  
+##### 274#       发表于 2025-8-25 01:19
+
+这崩一闪不就是处决嘛，看起来已经是只狼的形状了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  天选之子  
+##### 275#       发表于 2025-8-25 02:39
+
+<blockquote>真实之影 发表于 2025-8-25 00:24
+https://www.youtube.com/watch?v=cykCLpvR2gw
+
+找了个偏向一闪的试玩演示
+
+https://www.bilibili.com/video/ ...</blockquote>
+一闪可以同时削体力条和架势条，架势条清空以后接处决的回报比平砍和一闪高。感觉高手速通的套路就是“一闪接一闪接处决”了。
+
+
+*****
+
+####  57042711  
+##### 276#       发表于 2025-8-25 17:11
+
+不知道大型妖怪好不好打出失衡…不行的话那还是原汁原味鬼武者<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+等一个大型妖怪实机演示…
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  hikari0805  
+##### 277#       发表于 2025-8-25 18:36
+
+我是一点不担心鬼武者大型boss，卡普空这方面积累可太多了。倒是这么多年了，卡普空人形boss设计有没新突破是我关心的
+
+
+*****
+
+####  葵  
+##### 278#       发表于 2025-8-25 22:10
+
+这次感觉日版是不是又是和谐版的，我看欧美媒体演示里界面是英文语言的小怪被终结斩杀或者一闪的时候有断肢和分尸效果，几个日本媒体的日文界面的演示里被终结斩杀后就完全没断肢效果<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  drx66  
+##### 279#       发表于 2025-8-26 07:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68321185&amp;ptid=2210366" target="_blank">葵 发表于 2025-8-25 22:10</a>
+
+这次感觉日版是不是又是和谐版的，我看欧美媒体演示里界面是英文语言的小怪被终结斩杀或者一闪的时候有断肢 ...</blockquote>
+有选项开关，日媒自己关了
+
+
+*****
+
+####  尘世小狗  
+##### 280#       发表于 2025-8-26 09:04
+
+没人觉得这个boss战看着有维和感嘛？通过技巧偏转敌人攻击并露出毫无防备的背部，然后大砍刀直接砍进肉里，直觉上对方应该是死到不能再死了，结果就是掉了一小点血条，然后一切继续。
+
+以前各种动作游戏都没有让我产生过这种感觉，可能这种偏写实的技巧、人形boss的原因？本作对敌技法还有动作的节奏明显都是奔着写实去的，或者说偏日本传统剑戟片的风格，但动作结果上又和剑戟片那种顺分生死产生了矛盾感。
+
+
+*****
+
+####  pu  
+##### 281#       发表于 2025-8-26 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68322190&amp;ptid=2210366" target="_blank">尘世小狗 发表于 2025-8-26 09:04</a>
+
+没人觉得这个boss战看着有维和感嘛？通过技巧偏转敌人攻击并露出毫无防备的背部，然后大砍刀直接砍进肉里， ...</blockquote>
+ 我也觉得这点不太给力 不过对手不是正常人 可以靠设定糊弄过去
+
+
+*****
+
+####  葵  
+##### 282#       发表于 2025-8-27 04:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68321909&amp;ptid=2210366" target="_blank">drx66 发表于 2025-8-26 07:30</a>
+
+有选项开关，日媒自己关了</blockquote>
+哦哦，那就好<img src="https://static.stage1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  天选之子  
+##### 283#       发表于 2025-8-27 04:42
+
+<blockquote>尘世小狗 发表于 2025-8-26 09:04
+没人觉得这个boss战看着有维和感嘛？通过技巧偏转敌人攻击并露出毫无防备的背部，然后大砍刀直接砍进肉里， ...</blockquote>
+佐佐木小次郎也有鬼之笼手，也算鬼武者，鬼武者已经不是普通人类了，一代结局动画里金城武被幻魔王捏死了都能靠鬼之笼手满血复活一次。
+
+
+*****
+
+####  Garterbelt  
+##### 284#       发表于 2025-8-27 05:13
+
+<blockquote>尘世小狗 发表于 2025-8-26 09:04
+没人觉得这个boss战看着有维和感嘛？通过技巧偏转敌人攻击并露出毫无防备的背部，然后大砍刀直接砍进肉里， ...</blockquote>
+怎么不说主角被砍到也不会死呢，让你玩一个主角一旦被砍到就死掉的动作游戏你玩不玩啦
+
+另外小次郎的胸口和脖子处都有异常组织，加上台词来看游戏时间点两人应该已经进行过严流岛决斗了，小次郎应该已经被武藏砍死过一次，现在这个是复活的。都复活一次了不能被一刀砍死也很合理吧
+
+
+*****
+
+####  尘世小狗  
+##### 285#       发表于 2025-8-27 08:05
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68326724&amp;ptid=2210366" target="_blank">Garterbelt 发表于 2025-8-27 05:13</a>
+
+怎么不说主角被砍到也不会死呢，让你玩一个主角一旦被砍到就死掉的动作游戏你玩不玩啦
+
+另外小次郎的胸口 ...</blockquote>
+你这个说法可以解释砍不死的问题，但它整体的那种违和感还是没法回避，卡婊自家的鬼泣也有人形boss，典型的V哥（本质也不是人），打起来就没有这种感觉，我觉得要么是动作的剑戟风格和游戏机制表现不搭，要么它的boss受创动作还没调好。
+
+
+*****
+
+####  uponutopia  
+##### 286#       发表于 2025-8-27 10:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68326863&amp;ptid=2210366" target="_blank">尘世小狗 发表于 2025-8-27 08:05</a>
+
+你这个说法可以解释砍不死的问题，但它整体的那种违和感还是没法回避，卡婊自家的鬼泣也有人形boss，典型 ...</blockquote>
+你觉得鬼泣没问题单纯是因为已近被强X成型心理上默认鬼泣就这样了，我记得很清楚当年第一次玩鬼泣4开篇上来对着但丁怎么捅怎么砍丁他都跟个没事人一样的kuso感。鬼泣人形boss所谓的受创动作就是被砍顶多打个趔趄。高清化以后的次时代游戏越追求拟真越会潜意识里引导玩家以常识代入游戏。我玩过的高清游戏里砍杀人类反馈做得最自然的是奇迹2，完全符合人被杀就会死的常识，但是动作类游戏没法这么做，只能想办法减少常识带来的违和感
+
+
+*****
+
+####  尘世小狗  
+##### 287#       发表于 2025-8-27 16:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68327559&amp;ptid=2210366" target="_blank">uponutopia 发表于 2025-8-27 10:21</a>
+
+你觉得鬼泣没问题单纯是因为已近被强X成型心理上默认鬼泣就这样了，我记得很清楚当年第一次玩鬼泣4开篇上 ...</blockquote>
+我怀疑我们玩的是一个鬼泣嘛，我玩过3、4、5代，即便是这里面最早的3代也不存在你说的怎么砍都跟个没事人一样的情况，一般情况下会被弹刀或者对方霸体，但在积累到一定的攻击次数后，就能扎扎实实的看到对方，这个时候怪物受创动画还会更加明显，嗯，对面魔人化了只是霸体更强一点，也不存在没事人的说法吧。
+
+再一点，这个游戏还没出，我根据视频发表自己的看法，你不同意没问题，别一上来就是我被强X怎么怎么了，挺没意思的
+
+
+*****
+
+####  JOJO42  
+##### 288#       发表于 2025-8-27 16:44
+
+ 本帖最后由 JOJO42 于 2025-8-27 16:45 编辑 
+
+官推发了个10分钟流程演示，光谈动画这块是真不赖，感觉除了背后暗杀，别的动作几乎没有模型吸附观感
+[https://www.youtube.com/watch?v=mjDbYpNrFjI](https://www.youtube.com/watch?v=mjDbYpNrFjI)
+
+
+*****
+
+####  大喇叭花田  
+##### 289#       发表于 2025-8-27 19:34
+
+三船这个脸是加了美颜还是因为画质原因看不清皮肤？没有PV1那种老男人的沧桑感了。
+
+
+*****
+
+####  natto  
+##### 290#       发表于 2025-8-27 23:29
+
+看IGN视频说是一个要想办法维持增益的数值管理游戏，又对这偏慢速的战斗场面没那么反感了……
+
+
+*****
+
+####  wtyrambo  
+##### 291#       发表于 2025-8-28 00:15
+
+真的是不喜欢写实画风，卡婊现在还能做不写实的游戏吗
+
+
+*****
+
+####  57042711  
+##### 292#       发表于 2025-8-28 00:24
+
+远距离处决那个弓手是真的帅，比近身那个单手下斩帅多了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI FIN-AL60a, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  kos_mos  
+##### 293#       发表于 2025-8-28 00:25
+
+fami通访谈
+
+开发进度80%，试玩版也能用通常的一闪。
+[https://www.famitsu.com/article/202508/50519](https://www.famitsu.com/article/202508/50519)
+
+
+*****
+
+####  Leliel  
+##### 294#       发表于 2025-8-28 00:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">想玩试玩
+
