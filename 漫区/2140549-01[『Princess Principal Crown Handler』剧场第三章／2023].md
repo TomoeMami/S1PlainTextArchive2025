@@ -1047,3 +1047,120 @@ IMG_3746.jpeg
 —— 来自 HONOR BVL-AN00, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
 
+*****
+
+####  Rebellionx5  
+##### 104#       发表于 2025-8-28 22:33
+
+<img alt="" border="0" class="vm" src="https://static.stage1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+ai_studio_code.srt
+(74.08 KB, 下载次数: 0)
+
+2025-8-28 22:29 上传
+
+点击文件名下载附件
+
+字幕阅读权限: 20
+
+跑了个4章机翻字幕
+
+可能有大量错1-3秒的轴和少量AI飙英语，调一调应该just work，如果到周末精翻字幕还没出来我会抽空粗调一下轴再传一版
+
+
+*****
+
+####  oi99o  
+##### 105#       发表于 2025-8-28 23:31
+
+原来第四章有资源了，都没关注<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">诺曼底公rip了才想起来
+
+
+*****
+
+####  maoyou  
+##### 106#       发表于 2025-8-29 08:19
+
+好好好
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  林云少校  
+##### 107#       发表于 2025-8-30 23:29
+
+第四章居然已经出了，不过已经凉到没有字幕组做了么
+
+
+*****
+
+####  依然荏苒  
+##### 108#       发表于 2025-8-31 00:32
+
+搞不懂，是通过剧场版收尾了么？
+
+
+*****
+
+####  s0534146  
+##### 109#       发表于 2025-8-31 01:54
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么搜了下各大种子站没看到放源啊
+
+
+*****
+
+####  一色いろは  
+##### 110#       发表于 2025-8-31 16:29
+
+magnet:?xt=urn:btih:9286ce4ba9900796391052cd4c8659453237f7c3&amp;dn=%5BIoroid%5D+Princess+Principal+Crown+Handler+-+Chapter+4+%5BAMZN+WEB-DL+1080p+AVC+E-AC3%5D.mkv&amp;tr=udp://tracker.openbittorrent.com:80&amp;tr=udp://tracker.opentrackr.org:1337/announce
+
+
+*****
+
+####  孟沁瑶  
+##### 111#       发表于 2025-8-31 16:57
+
+应该不用急，应该还是有几个组会做的
+
+
+*****
+
+####  eilot  
+##### 112#       发表于 2025-8-31 17:22
+
+原定做6章
+
+不過白鸽小队連公主全員都被捉的情況下，第5~6章如何寫好
+
+雖然關注點是公主和安潔的真身會否公開，但用來作最後的反擊，感覺上氣勢還有所不足
+
+
+*****
+
+####  aptx8285144  
+##### 113#       发表于 2025-8-31 18:32
+
+你们现在肯定没有什么正常的翻译可看吧？叔叔家那个ai翻译我看了一会儿实在绷不住了<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而停下来了
+
+
+*****
+
+####  400姨妈  
+##### 114#       发表于 2025-8-31 19:27
+
+水了一小时单元回，就剩2部的时常该怎么推墙和搞定反骨红毛二哥<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">该不会是全员润新大陆结局吧
+
+
+*****
+
+####  s0534146  
+##### 115#       发表于 2025-9-1 00:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68347456&amp;ptid=2140549" target="_blank">一色いろは 发表于 2025-8-31 16:29</a>
+
+magnet:?xt=urn:btih:9286ce4ba9900796391052cd4c8659453237f7c3&amp;dn=%5BIoroid%5D+Princess+Principal+Crow ...</blockquote>
+感谢一色学妹！
+
