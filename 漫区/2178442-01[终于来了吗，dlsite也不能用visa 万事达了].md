@@ -1465,3 +1465,95 @@ fantia好像绑不上国内的JCB，不过已经断了 再续也没意义了</bl
 
 鬼佬和谐你的时候可不是tag不标萝莉和雌小鬼就行的问题，信不信迟早把体操服死库水这些“看起来是在暗示校园环境和年龄”的东西也给海外干掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  azbhg1  
+##### 155#       发表于 2025-9-4 20:00
+
+ 本帖最后由 azbhg1 于 2025-9-4 20:02 编辑 
+
+[https://info.eisys.co.jp/dlsite/b268c88ce45742a9?locale=default](https://info.eisys.co.jp/dlsite/b268c88ce45742a9?locale=default)
+
+信用卡付款和发评论不返点数咯
+
+
+*****
+
+####  黑上シグマ  
+##### 156#       发表于 2025-9-5 10:02
+
+<blockquote>引用第154楼azbhg1于2025-09-04 20:00发表的  :
+
+本帖最后由 azbhg1 于 2025-9-4 20:02 编辑 https://info.eisy......</blockquote>
+他也没写是针对信用卡付款啊，其他付款方法也是一样啊
+还说了在准备新的返利方法
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  azbhg1  
+##### 157#       发表于 2025-9-5 10:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68373828&amp;ptid=2178442" target="_blank">黑上シグマ 发表于 2025-9-5 10:02</a>
+他也没写是针对信用卡付款啊，其他付款方法也是一样啊
+还说了在准备新的返利方法</blockquote>
+只有信用卡付款才会返点数吧，点数付款是不返的
+
+
+*****
+
+####  黑上シグマ  
+##### 158#       发表于 2025-9-5 10:26
+
+<blockquote>引用第156楼azbhg1于2025-09-05 10:11发表的  :
+
+黑上シグマ 发表于 2025-9-5 10:02他也没写是针对信用卡付款啊，其他付款方法也是一样啊还......</blockquote>
+那不还有paypay，bitcash之类的吗，你不能因为国内基本不用就当它不存在啊……
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.47)
+
+
+*****
+
+####  喵喵叫的猫  
+##### 159#       发表于 2025-9-5 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68373900&amp;ptid=2178442" target="_blank">azbhg1 发表于 2025-9-5 10:11</a>
+
+只有信用卡付款才会返点数吧，点数付款是不返的</blockquote>
+他这个只是评论返点数取消
+
+才买了一堆 用点数买会返点的
+
+
+*****
+
+####  whzfjd  
+##### 160#       发表于 2025-9-5 12:03
+
+都领券买了，习惯不返点了
+
+
+*****
+
+####  azbhg1  
+##### 161#       发表于 2025-9-5 13:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68374585&amp;ptid=2178442" target="_blank">喵喵叫的猫 发表于 2025-9-5 11:52</a>
+
+他这个只是评论返点数取消
+
+才买了一堆 用点数买会返点的</blockquote>
+返点不就是要评价才返
+
+全额用点数买不返点不是他们自己写的吗
+
+*****
+
+####  28201  
+##### 162#       发表于 2025-9-5 13:20
+
+话说它现在这直接买点数汇率不太对吧
+
