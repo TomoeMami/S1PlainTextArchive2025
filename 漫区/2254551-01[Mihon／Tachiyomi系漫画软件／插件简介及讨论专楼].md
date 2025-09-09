@@ -548,3 +548,476 @@ aidoku的testflight名额要刷新了
 但是sy的双页还是笨笨的，目前遇到的 ...</blockquote>
 sy和komiic我主要痛点就是，ui比j2k丑了太多，然后保存图片永远都会新建一个作品文件夹，设置里的选项和摆设一样根本不生效，新建一个文件夹保存图片的话，系统相册里会多出一大排图片文件夹，很恶心
 
+*****
+
+####  azbhg1  
+##### 47#         楼主| 发表于 2025-8-13 19:54
+
+更新Aniyomi相关
+
+
+*****
+
+####  WiiGe  
+##### 48#       发表于 2025-8-15 06:18
+
+按理说 komga 也应该被放进来, 虽然它现在是个多用户漫画/文档服务器, 但早期它也只是个单纯的 tachiyomi 源, 而现在仍旧可以被视为最好的 Mihon 自建漫画源
+
+
+*****
+
+####  azbhg1  
+##### 49#         楼主| 发表于 2025-8-15 15:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68267762&amp;ptid=2254551" target="_blank">WiiGe 发表于 2025-8-15 06:18</a>
+
+按理说 komga 也应该被放进来, 虽然它现在是个多用户漫画/文档服务器, 但早期它也只是个单纯的 tachiyomi  ...</blockquote>
+komga并不是一个tachiyomi客户端，不会放在主楼
+
+tachiyomi相关软件主要是用来追连载更新的，而komga一般是来管理本地漫画库的，而目前完全可以独立使用，所以之后没提
+
+
+*****
+
+####  azbhg1  
+##### 50#         楼主| 发表于 2025-8-15 19:56
+
+发现suwayomi最新版已支持webview，但是中文网页打开全是乱码，不过还是能勉强登陆上去。
+
+
+*****
+
+####  RaidenII  
+##### 51#       发表于 2025-8-16 05:06
+
+koreader上有rakuyomi插件，用的是老版本的aidoku源。
+
+漫画柜能用，但是rawkuma和rawdevart的插件都用不了
+
+
+*****
+
+####  azbhg1  
+##### 52#         楼主| 发表于 2025-8-18 18:14
+
+开个专项群
+
+Mihon/Tachiyomi系漫画软件/插件 蓝飞机交流群 ：[https://t.me/+wBT9JeAje5szMmMx](https://t.me/+wBT9JeAje5szMmMx)
+<img src="https://image.ys-8.de/file/1755511997615_Telegram_LjjV4lEX0H.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  azbhg1  
+##### 53#         楼主| 发表于 2025-8-19 20:17
+
+更新：
+
+Mihon官方讨论群组：[https://discord.gg/mihon](https://discord.gg/mihon) （含TachiyomiJ2k/Yokai/TachiyomiSY/Komikku）
+
+Suwayomi官方讨论群组：[https://discord.gg/DDZdqZWaHA](https://discord.gg/DDZdqZWaHA)
+
+
+*****
+
+####  qyc96  
+##### 54#       发表于 2025-8-21 15:56
+
+请问我插件下了以后 软件退出再进就没有了，每次漫画源要重新下载怎么办？
+
+
+*****
+
+####  azbhg1  
+##### 55#         楼主| 发表于 2025-8-22 01:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301065&amp;ptid=2254551" target="_blank">qyc96 发表于 2025-8-21 15:56</a>
+
+请问我插件下了以后 软件退出再进就没有了，每次漫画源要重新下载怎么办？ ...</blockquote>
+我这没遇到过这种情况，要不你把设置里的插件安装方式都切换一下试一下
+
+
+*****
+
+####  WhiteGlint  
+##### 56#       发表于 2025-8-22 09:30
+
+J2K虽然没人维护了不过现在是不是继续用也没啥问题？我目前还在用，感觉也没啥特别需要维护的地方
+
+
+*****
+
+####  azbhg1  
+##### 57#         楼主| 发表于 2025-8-22 20:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68304166&amp;ptid=2254551" target="_blank">WhiteGlint 发表于 2025-8-22 09:30</a>
+
+J2K虽然没人维护了不过现在是不是继续用也没啥问题？我目前还在用，感觉也没啥特别需要维护的地方 ...</blockquote>
+我没关注主要开发者动态，具体不懂
+
+但是我看仓库也还没归档吧，而且上个月不还在更新代码。现在只是稳定版更新慢，估计目前是以维护现有功能为主了，不怎么新加功能了。
+
+说起来个人觉得j2k这个分支系列的UI是最好看的....SY那一系的都太丑了....
+
+
+*****
+
+####  WhiteGlint  
+##### 58#       发表于 2025-8-22 20:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307292&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-8-22 20:19</a>
+
+我没关注主要开发者动态，具体不懂
+
+但是我看仓库也还没归档吧，而且上个月不还在更新代码。现在只是稳定 ...</blockquote>
+完全割舍不掉J2K，UI比Mihon和原生的tachiyomi好看太多了，而且我平板上面的双页模式觉得J2K是支持最好的
+
+
+*****
+
+####  无面  
+##### 59#       发表于 2025-8-23 11:00
+
+请教下各位，我用的是ios版的tachimanga，发现两个问题：一个下载的仓库里面的源，比如包子源不支持分类筛选和检索，很多中文源都无法打开，基本上是不可用状态。另外一个是比如e开头的一些18x的，搜索会提示包含敏感内容，要我调整偏好，但是我没找到在哪里调整啊。
+
+
+*****
+
+####  azbhg1  
+##### 60#         楼主| 发表于 2025-8-23 20:09
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68307402&amp;ptid=2254551" target="_blank">WhiteGlint 发表于 2025-8-22 20:51</a>
+
+完全割舍不掉J2K，UI比Mihon和原生的tachiyomi好看太多了，而且我平板上面的双页模式觉得J2K是支持最好的 ...</blockquote>
+我也是最喜欢用j2k。不过反正没出问题不影响继续用。
+
+你要是想用维护频繁点的版本，那换yokai不就完了<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+yokai主要改的一些功能的底层实现方法，默认UI基本保持和j2k一致的
+
+
+*****
+
+####  MMIno  
+##### 61#       发表于 2025-8-25 09:32
+
+现在再漫画插件都提示用户等级不够，我去web登录访问发现看漫画都是正常的
+
+
+*****
+
+####  kk霖洞九  
+##### 62#       发表于 2025-8-25 10:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68317304&amp;ptid=2254551" target="_blank">MMIno 发表于 2025-8-25 09:32</a>
+现在再漫画插件都提示用户等级不够，我去web登录访问发现看漫画都是正常的 ...</blockquote>
+再漫画mihon插件也是可以登录的，填上去就可以正常看了
+
+*****
+
+####  MMIno  
+##### 63#       发表于 2025-8-25 10:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68317641&amp;ptid=2254551" target="_blank">kk霖洞九 发表于 2025-8-25 10:27</a>
+
+再漫画mihon插件也是可以登录的，填上去就可以正常看了</blockquote>
+插件里面我登录了，很奇怪
+
+
+*****
+
+####  kk霖洞九  
+##### 64#       发表于 2025-8-25 10:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68317672&amp;ptid=2254551" target="_blank">MMIno 发表于 2025-8-25 10:30</a>
+插件里面我登录了，很奇怪</blockquote>
+啥漫画我也试试
+
+*****
+
+####  MMIno  
+##### 65#       发表于 2025-8-25 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68317718&amp;ptid=2254551" target="_blank">kk霖洞九 发表于 2025-8-25 10:37</a>
+
+啥漫画我也试试</blockquote>
+《雷雷雷》，我发现我刷新出来的更新的再漫画的漫画全都报这个错
+
+
+*****
+
+####  kk霖洞九  
+##### 66#       发表于 2025-8-25 10:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68317741&amp;ptid=2254551" target="_blank">MMIno 发表于 2025-8-25 10:40</a>
+《雷雷雷》，我发现我刷新出来的更新的再漫画的漫画全都报这个错</blockquote>
+我这能正常看，插件版本1.48 原生mihon0.16.5,插件设置里显示令牌登录成功
+
+
+*****
+
+####  MMIno  
+##### 67#       发表于 2025-8-25 10:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68317806&amp;ptid=2254551" target="_blank">kk霖洞九 发表于 2025-8-25 10:49</a>
+
+我这能正常看，插件版本1.48 原生mihon0.16.5,插件设置里显示令牌登录成功</blockquote>
+原生mihon0.19.1 插件版本1.4.10 无语了，重新安装了一下插件也不行
+
+
+*****
+
+####  kk霖洞九  
+##### 68#       发表于 2025-8-25 10:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68317832&amp;ptid=2254551" target="_blank">MMIno 发表于 2025-8-25 10:53</a>
+原生mihon0.19.1 插件版本1.4.10 无语了，重新安装了一下插件也不行</blockquote>
+那可能是版本原因吧
+
+*****
+
+####  MMIno  
+##### 69#       发表于 2025-8-25 11:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68317859&amp;ptid=2254551" target="_blank">kk霖洞九 发表于 2025-8-25 10:58</a>
+
+那可能是版本原因吧</blockquote>
+好像是有bug，配置了的账户和密码不会去尝试登录，一直是处于未登录状态
+
+
+*****
+
+####  azbhg1  
+##### 70#         楼主| 发表于 2025-8-25 13:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68317874&amp;ptid=2254551" target="_blank">MMIno 发表于 2025-8-25 11:00</a>
+好像是有bug，配置了的账户和密码不会去尝试登录，一直是处于未登录状态 ...</blockquote>
+清cookie，清账号密码框，然后重新输入登录，我前两天也遇到了
+
+
+*****
+
+####  MMIno  
+##### 71#       发表于 2025-8-25 13:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68318655&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-8-25 13:14</a>
+
+清cookie，清账号密码框，然后重新输入登录，我前两天也遇到了</blockquote>
+感谢，恢复了
+
+
+*****
+
+####  azbhg1  
+##### 72#         楼主| 发表于 2025-8-25 13:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68318696&amp;ptid=2254551" target="_blank">MMIno 发表于 2025-8-25 13:22</a>
+感谢，恢复了</blockquote>
+这个应该是原本的cookie失效了的问题。
+
+没看源码，但是我猜这个插件只会在第一次输入账号密码的时候尝试登录获取cookie，获取到之后，就把cookie存着一直用了，也不会去自己更新它
+
+
+*****
+
+####  azbhg1  
+##### 73#         楼主| 发表于 2025-8-27 19:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68318696&amp;ptid=2254551" target="_blank">MMIno 发表于 2025-8-25 13:22</a>
+感谢，恢复了</blockquote>
+我和圣女有一腿这件事暴露了队伍就会崩坏
+
+这本你能用再漫画插件看吗？ 
+我一开始还以为插件登录又掉了，重新登录完发现只有这本看不了。
+
+难道再漫画开始实行等级限制了？我只有lv1
+
+
+*****
+
+####  MMIno  
+##### 74#       发表于 2025-8-28 08:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68330289&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-8-27 19:40</a>
+
+我和圣女有一腿这件事暴露了队伍就会崩坏
+
+这本你能用再漫画插件看吗？ </blockquote>
+我在插件里面搜不到这个漫画
+
+
+*****
+
+####  even001  
+##### 75#       发表于 2025-8-28 21:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68330289&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-8-27 19:40</a>
+
+我和圣女有一腿这件事暴露了队伍就会崩坏
+
+这本你能用再漫画插件看吗？ </blockquote>
+在某些群也看到说再漫画插件失效了的，可能是再漫画更新了
+
+
+*****
+
+####  azbhg1  
+##### 76#         楼主| 发表于 2025-8-29 01:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68335497&amp;ptid=2254551" target="_blank">even001 发表于 2025-8-28 21:31</a>
+
+在某些群也看到说再漫画插件失效了的，可能是再漫画更新了</blockquote>
+其他的都能看，就那本看不了
+
+
+*****
+
+####  azbhg1  
+##### 77#         楼主| 发表于 2025-8-30 22:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67982755&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-6-22 23:03</a>
+
+常用中文源充满个人偏见的介绍：
+
+（没有详细查证，不一定都符合客观事实，有错请指出 ）</blockquote>
+再漫画插件已更新查看单话吐槽功能
+
+主楼补充一个拷贝的插件仓库
+
+
+*****
+
+####  伊丽虾皇VI  
+##### 78#       发表于 2025-8-30 23:21
+
+新的拷贝源连接稳了好多，不过筛选条件比之前的少点
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  福猫饭店  
+##### 79#       发表于 2025-8-31 16:27
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68301065&amp;ptid=2254551" target="_blank">qyc96 发表于 2025-8-21 15:56</a>
+
+请问我插件下了以后 软件退出再进就没有了，每次漫画源要重新下载怎么办？ ...</blockquote>
+切dev版本试试？
+
+前面平板遇到了但因为root过确定不了哪边的问题，dev版本能用就没继续折腾了
+
+
+*****
+
+####  伊丽虾皇VI  
+##### 80#       发表于 2025-8-31 16:41
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68347449&amp;ptid=2254551" target="_blank">福猫饭店 发表于 2025-8-31 16:27</a>
+切dev版本试试？
+
+前面平板遇到了但因为root过确定不了哪边的问题，dev版本能用就没继续折腾了 ...</blockquote>
+我昨天换了个fork出现这个问题，我是手机没给应用读取应用列表的权限，你看看
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  azbhg1  
+##### 81#         楼主| 发表于 2025-9-2 21:56
+
+再漫画大概真的启用等级限制+夜晚解禁了
+<img src="https://image.ys-8.de/file/1756821350867_QQ_TWMP4DNfKA.png" referrerpolicy="no-referrer">
+
+就死命签到去吧，听说lv4要500经验<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主楼更新了个有几个中文插件作者在的非官方群
+
+
+*****
+
+####  软软人  
+##### 82#       发表于 2025-9-2 22:16
+
+mihon自带的备份用不了咩？今天想把手机的书架移到平板里，备份文件导过去但是显示备份失败~
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  azbhg1  
+##### 83#         楼主| 发表于 2025-9-2 22:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68359433&amp;ptid=2254551" target="_blank">软软人 发表于 2025-9-2 22:16</a>
+
+mihon自带的备份用不了咩？今天想把手机的书架移到平板里，备份文件导过去但是显示备份失败~
+
+—— 来自 鹅 ...</blockquote>
+导入过去不该是恢复备份吗
+
+
+*****
+
+####  软软人  
+##### 84#       发表于 2025-9-2 23:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68359564&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-9-2 22:55</a>
+导入过去不该是恢复备份吗</blockquote>
+可能下午那会儿备份文件传平板的时候损坏了没搞成，这会儿重新搞了一下，好了<img src="https://static.stage1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  hyhaha  
+##### 85#       发表于 2025-9-3 21:05
+
+在漫画的等级是不是还要绑定手机
+
+
+*****
+
+####  azbhg1  
+##### 86#         楼主| 发表于 2025-9-3 21:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68365828&amp;ptid=2254551" target="_blank">hyhaha 发表于 2025-9-3 21:05</a>
+
+在漫画的等级是不是还要绑定手机</blockquote>
+算了，我二楼写清楚吧，不绑手机大概大部分日漫都不给看
+
+
+*****
+
+####  傘木希美  
+##### 87#       发表于 2025-9-4 09:05
+
+借问下现在有用mihon tachiyomi插件的嘛<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看芙莉莲和金牌得主都没更新，电锯人有更新，那这种情况就是本体那边也没更新嘛
+
+—— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  azbhg1  
+##### 88#         楼主| 发表于 2025-9-4 19:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68367147&amp;ptid=2254551" target="_blank">傘木希美 发表于 2025-9-4 09:05</a>
+
+借问下现在有用mihon copymanga插件的嘛看芙莉莲和金牌得主都没更新，电锯人有更新，那这种情况就是本体那 ...</blockquote>
+你用什么插件就去插件对应的网站先看看到底更新没有呗
+
+
+*****
+
+####  keytomylife  
+##### 89#       发表于 2025-9-6 20:28
+
+难怪最近再漫画插件全部不能看
+
+原来强制登陆了
+
+注册+手机绑定在mihon登录后能看了
+
