@@ -8183,3 +8183,34 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 新版本最没想到的还是蛋鱼居然是成立的</blockquote>
 <img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实是偷了环境之后才勉强能玩，二妹的交换能力很弱但又必须要拍，2费法术也会在进化回合前毁自己场，碰到皇天宫特别是2234的这种直接往地上一趟，天梯主流职业里面没有一个是优势对局，还需要补强
 
+*****
+
+####  windhawind2  
+##### 697#       发表于 2025-9-12 15:00
+
+梦已经越来越多了 不得不说这个环境下傻铺还真是有用的
+
+
+*****
+
+####  duraa  
+##### 698#       发表于 2025-9-14 00:45
+
+<img src="https://img.stage1st.com/forum/202509/14/004524jgxt099t2gg23r1t.jpg" referrerpolicy="no-referrer">
+
+<strong>5Y{{8PR_WQKQERHX]$O1Z}4.jpg</strong> (184.43 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-14 00:45 上传
+
+<img src="https://img.stage1st.com/forum/202509/14/004524cjy0bsnucn2oukju.jpg" referrerpolicy="no-referrer">
+
+<strong>EJVJ8_8Z8O](3FYI@M1512U_tmb.jpg</strong> (66.02 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-14 00:45 上传
+
+芜湖，中速皇广场赛优胜<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">没想到决赛打的还是智斗妖
+
