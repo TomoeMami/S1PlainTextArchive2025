@@ -523,3 +523,10 @@ dnfm也要上了，横版act赛道肯定竞争不过。
 
 [论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
 
+*****
+
+####  Onelooker  
+##### 51#       发表于 2025-9-16 17:25
+
+据说正常上线没什么问题, 之后怎么样就不好说了
+
