@@ -1682,3 +1682,140 @@ https://github.com/vladmikhalin/shadPS4/tree/fix-bb-lighting复制代码
 
 模拟器已经完善到能够打完血源全程了，我是 Intel CPU + AMD 显卡（12600KF + 7800XT），用的官方 nightly 版 shadPS4 和[这个 up](https://www.bilibili.com/video/BV1opfkYPEgZ) 提供的 mod 方案，这周花 18 小时打通了本体+DLC，极少数情况会闪退或卡死，但是玩魂游没什么影响，模拟器备份存档、备份 boss 点、大退小退都非常方便，而且加载比ps4快多了，配合 lossless scaling 可以玩 120 帧，巨爽
 
+*****
+
+####  gkstill  
+##### 160#       发表于 2025-9-15 01:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67329052&amp;ptid=2190484" target="_blank">madnesshare 发表于 2025-2-1 20:46</a>
+不知道现在进化到完全版没</blockquote>
+现在基本上是完全版了，除了显存会越打越多，但是连续玩两个小时还是不会爆炸的（rtx2080，8g显存），偶尔闪退。
+另外用小黄鸭拼60帧比自带60帧mod好使
+
+—— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  usodakedo  
+##### 161#       发表于 2025-9-15 07:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68428724&amp;ptid=2190484" target="_blank">gkstill 发表于 2025-9-15 01:00</a>
+现在基本上是完全版了，除了显存会越打越多，但是连续玩两个小时还是不会爆炸的（rtx2080，8g显存），偶 ...</blockquote>
+8g显存大概最多能顶多久？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  平井姨夫  
+##### 162#       发表于 2025-9-15 07:26
+
+马克一下
+
+
+*****
+
+####  Mephisto  
+##### 163#       发表于 2025-9-15 09:29
+
+可以开1080以上了么，之前高分辨率很容易死机
+
+
+*****
+
+####  bypass  
+##### 164#       发表于 2025-9-15 09:39
+
+今年三月份打通的，2K + RTX HDR 绝赞，可惜当时 2K 分辨率很不稳定。
+
+[https://www.bilibili.com/video/BV1AyXWY1Eeo](https://www.bilibili.com/video/BV1AyXWY1Eeo)
+
+
+*****
+
+####  gkstill  
+##### 165#       发表于 2025-9-15 21:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68429673&amp;ptid=2190484" target="_blank">usodakedo 发表于 2025-9-15 07:07</a>
+8g显存大概最多能顶多久？
+
+—— 来自 S1Fun</blockquote>
+两个小时就会从4g干到7.8g，偶尔会自己释放一些显存，但是会卡几秒
+
+—— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  gkstill  
+##### 166#       发表于 2025-9-15 21:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68430152&amp;ptid=2190484" target="_blank">Mephisto 发表于 2025-9-15 09:29</a>
+可以开1080以上了么，之前高分辨率很容易死机</blockquote>
+我这8g破显卡能开，但是可能半个小时就爆显存了
+
+—— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  huahuaanying  
+##### 167#       发表于 2025-9-15 21:54
+
+何必如此勉强，买台破解ps4pro吧
+
+
+*****
+
+####  gkstill  
+##### 168#       发表于 2025-9-15 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68434894&amp;ptid=2190484" target="_blank">huahuaanying 发表于 2025-9-15 21:54</a>
+何必如此勉强，买台破解ps4pro吧</blockquote>
+没有高帧率啊，而且当初在ps4pro上打了十几遍了
+
+—— 来自 HUAWEI ELS-AN00, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  yvev  
+##### 169#       发表于 2025-9-16 20:10
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68434894&amp;ptid=2190484" target="_blank">huahuaanying 发表于 2025-9-15 21:54</a>
+
+何必如此勉强，买台破解ps4pro吧</blockquote>
+才发现独醒侠活这么密，本以为只是来串的，现在有点钦佩起来了<img src="https://static.stage1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  usodakedo  
+##### 170#       发表于 2025-9-16 20:13
+
+ 本帖最后由 usodakedo 于 2025-9-16 20:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68434894&amp;ptid=2190484" target="_blank">huahuaanying 发表于 2025-9-15 21:54</a>
+何必如此勉强，买台破解ps4pro吧</blockquote>
+八百年前早就通关好几遍了，宝石也基本刷毕业了，现在模拟器不就图一个怀旧加高帧数加做视频方便吗？对于新人来说也更方便体验
+
+
+*****
+
+####  浅色轮回  
+##### 171#       发表于 2025-9-16 21:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68434894&amp;ptid=2190484" target="_blank">huahuaanying 发表于 2025-9-15 21:54</a>
+
+何必如此勉强，买台破解ps4pro吧</blockquote>
+简中重译，提灯增强，60帧这些都能提升体验的功能ps都没啊
+
+
+*****
+
+####  zhenlune  
+##### 172#       发表于 2025-9-16 21:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68440667&amp;ptid=2190484" target="_blank">浅色轮回 发表于 2025-9-16 21:20</a>
+简中重译，提灯增强，60帧这些都能提升体验的功能ps都没啊</blockquote>
+简中重译的mod可以打到实机上，但是超级麻烦<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
