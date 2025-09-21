@@ -1946,3 +1946,62 @@ PS5版半价了买了，然后和STEAM原价一个价
 
 奖杯获得率都不到1%...PSNPORFILE白金率不到3%，释然了，PVP奖杯没有就没有吧
 
+*****
+
+####  cmyk1234  
+##### 165#       发表于 2025-9-17 22:03
+
+2026年1月发售ns2版，包括ns1加1000日元升级。
+NS2另售《少女魔役》卡包及其他DLC。
+
+*****
+
+####  whzfjd  
+##### 166#       发表于 2025-9-17 22:06
+
+新挂画有点想入，豪华版还包扩展包
+
+
+*****
+
+####  whzfjd  
+##### 167#       发表于 2025-9-17 23:05
+
+AMIAMI 预约特典：A4文件夹
+
+<img src="https://img.stage1st.com/forum/202509/17/225849ykmcfbmmmqern5tb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (399.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 22:58 上传
+
+AMIAMI 加钱特典：A6 亚克力板
+
+<img src="https://img.stage1st.com/forum/202509/17/230117q34vy9dwbbh5ll4k.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (731.23 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 23:01 上传
+
+WonderGOO 原创（加钱）特典：
+
+<img src="https://img.stage1st.com/forum/202509/17/230212cugvv5lckl69khgr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (678.7 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-17 23:02 上传
+
+
+*****
+
+####  flyingover  
+##### 168#       发表于 2025-9-18 11:18
+
+有说ns和pc端会追加付费dlc吗，还是ns2独占的
+
