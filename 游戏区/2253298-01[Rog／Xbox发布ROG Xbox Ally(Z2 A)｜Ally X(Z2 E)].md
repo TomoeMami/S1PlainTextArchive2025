@@ -1403,3 +1403,50 @@ https://www.youtube.com/watch?v=VTaboYwSyuc
 这是历史上第一次发生一个公司的同世代掌机比主机还贵，而且还贵不少的情况吧？ ...</blockquote>
 ROG的主机比掌机贵
 
+*****
+
+####  医生狼多  
+##### 131#       发表于 2025-9-18 14:38
+
+新模式可以在其他win设备上试用了
+https://www.reddit.com/r/ROGAlly/s/ihTq5tM9u9
+
+
+*****
+
+####  泰坦失足  
+##### 132#         楼主| 发表于 2025-9-18 14:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68450532&amp;ptid=2253298" target="_blank">医生狼多 发表于 2025-9-18 14:38</a>
+
+新模式可以在其他win设备上试用了
+
+https://www.reddit.com/r/ROGAlly/s/ihTq5tM9u9</blockquote>
+看到B站和贴吧上也有人宣传了. 在发售前的卖点功能就能在其他设备上体验到. 也算GBA模拟器比GBA上市先的又一个伙伴了
+
+
+*****
+
+####  Herreimu  
+##### 133#       发表于 2025-9-18 18:35
+
+省流：休眠没解决，性能没提升
+
+
+*****
+
+####  luffyzhou  
+##### 134#       发表于 2025-9-18 19:07
+
+那岂不是还不如steam大屏模式
+
+—— 来自 samsung SM-F9660, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  zhhuan  
+##### 135#       发表于 2025-9-18 19:42
+
+还是等正式卖的测评吧，现在这些偷跑的微软都没做适配，看下rog xbox ally的系统到底有多大提升
+
