@@ -15287,3 +15287,12 @@ Shit up真神棍，1.3.1更新打不开游戏了… 什么正版受害者…
 
 魔兽旅游UP主风格的解析更新了，这次是4号高塔地图，许多信息还是在他那里第一次见到<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">看制作组怎么偷鸡取巧也非常欢乐。后面渡鸦那里感觉太败犬了笑死我了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  江戸前ルナ  
+##### 4267#       发表于 2025-9-20 11:40
+
+[https://www.bilibili.com/video/BV1MMWLziEXX](https://www.bilibili.com/video/BV1MMWLziEXX)
+
+最后一集，大家一直在艾多斯里。游戏里7张大地图全都串起来了。
+
