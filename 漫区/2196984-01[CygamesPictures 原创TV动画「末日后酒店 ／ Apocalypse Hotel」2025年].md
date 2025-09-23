@@ -8936,3 +8936,18 @@ BD的第一卷收到了，第一次用乐天买东西原本打算全部发售后
  ...</blockquote>
 吐槽一下，乐天的购够网竟然连日本邮费都要购买者自己付<img src="https://static.stage1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+*****
+
+####  aptx8285144  
+##### 757#       发表于 2025-9-20 17:19
+
+<img src="https://img.stage1st.com/forum/202509/20/171747bq23u24hoex7hvj3.jpg" referrerpolicy="no-referrer">
+
+<strong>酒店销售.jpg</strong> (59.3 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-20 17:17 上传
+
+第二卷是1412，也不错了，第一卷没有收录（发售前就有人更加变化猜测不会收录而不是褒姒，具体情况未知）
+
