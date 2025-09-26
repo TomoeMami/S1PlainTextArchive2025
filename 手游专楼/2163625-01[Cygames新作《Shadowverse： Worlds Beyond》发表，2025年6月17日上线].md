@@ -8214,3 +8214,10 @@ kmr: 500一张是神巴遗产，我们新画的异画要加钱懂吗？
 
 芜湖，中速皇广场赛优胜<img src="https://static.stage1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">没想到决赛打的还是智斗妖
 
+*****
+
+####  66367749  
+##### 699#       发表于 2025-9-23 23:07
+
+之前没玩过皇和法，大赛玩了把财宝皇5胜，这简直不是一个时代的卡组吧，伤害也太多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
