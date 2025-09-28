@@ -1164,3 +1164,322 @@ magnet:?xt=urn:btih:9286ce4ba9900796391052cd4c8659453237f7c3&amp;dn=%5BIoroid%5D
 magnet:?xt=urn:btih:9286ce4ba9900796391052cd4c8659453237f7c3&amp;dn=%5BIoroid%5D+Princess+Principal+Crow ...</blockquote>
 感谢一色学妹！
 
+*****
+
+####  梦诗歌雪  
+##### 116#       发表于 2025-9-18 12:34
+
+Princess Principal Crown Handler 04 / 公主代理人 皇冠操纵者 04 / プリンセス・プリンシパル Crown Handler 04
+
+magnet:?xt=urn:btih:253f406c778107c89531737ed41f2e23e1ae5ff4&amp;tr=http%3a%2f%2ft.nyaatracker.com%2fannounce&amp;tr=http%3a%2f%2ftracker.kamigami.org%3a2710%2fannounce&amp;tr=http%3a%2f%2fshare.camoe.cn%3a8080%2fannounce&amp;tr=http%3a%2f%2fopentracker.acgnx.se%2fannounce&amp;tr=http%3a%2f%2fanidex.moe%3a6969%2fannounce&amp;tr=http%3a%2f%2ft.acg.rip%3a6699%2fannounce&amp;tr=https%3a%2f%2ftr.bangumi.moe%3a9696%2fannounce&amp;tr=udp%3a%2f%2ftr.bangumi.moe%3a6969%2fannounce&amp;tr=http%3a%2f%2fopen.acgtracker.com%3a1096%2fannounce&amp;tr=udp%3a%2f%2ftracker.opentrackr.org%3a1337%2fannounce
+
+熟肉压好了
+
+
+*****
+
+####  孟沁瑶  
+##### 117#       发表于 2025-9-18 16:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68449833&amp;ptid=2140549" target="_blank">梦诗歌雪 发表于 2025-9-18 12:34</a>
+
+Princess Principal Crown Handler 04 / 公主代理人 皇冠操纵者 04 / プリンセス・プリンシパル Crown Hand ...</blockquote>
+孩子有救了
+
+
+*****
+
+####  孟沁瑶  
+##### 118#       发表于 2025-9-19 01:59
+
+诺曼底公和L是互相认可的对手，外加第三方势力的情况下其实已经相对容易包饺子了，避免了很多死胡同。
+
+写的比较圆的可以参考的例子是吕克贝松的安娜。
+
+
+*****
+
+####  暗黑能乐  
+##### 119#       发表于 2025-9-19 10:24
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后登场的泽尔达属实有把我逗笑，共和国的军方纯搞子，王子和他们联手感觉作死度比公主还高，毕竟公主参与的间谍案在诺曼底公那看来都是不值一提的小事，王子这种显然像是叛国大罪了，莫非这小子想和共和国军部联手直接一桶代英了
+
+
+*****
+
+####  550616  
+##### 120#       发表于 2025-9-19 15:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68449833&amp;ptid=2140549" target="_blank">梦诗歌雪 发表于 2025-9-18 12:34</a>
+
+Princess Principal Crown Handler 04 / 公主代理人 皇冠操纵者 04 / プリンセス・プリンシパル Crown Hand ...</blockquote>
+感谢，可惜没人开新楼
+
+
+*****
+
+####  IWS2000  
+##### 121#       发表于 2025-9-20 00:21
+
+才发现更新了赶紧去看，侍女软软的也太可爱了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  oi99o  
+##### 122#       发表于 2025-9-20 14:54
+
+总觉得切手臂这点子应该是要安洁自己想出来才对，而不是要人家自己决定牺牲
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  伊露伊道格拉斯  
+##### 123#       发表于 2025-9-20 20:33
+
+上一集是多久之前的事了，完全没印象了<img src="https://static.stage1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  madness  
+##### 124#       发表于 2025-9-20 22:19
+
+公爵开始让公主学习政务了。
+
+
+*****
+
+####  没取名啊  
+##### 125#       发表于 2025-9-20 23:42
+
+感觉现在这个局势润到王国比较好活啊。虽然公主和诺曼底公爵政见不和，但再怎么说磕个头认错的话保小队活命肯定没问题。如果能帮忙把他哥的造反给平定了的话间谍身份直接洗白白，提前过上退休生活都有可能
+
+
+*****
+
+####  IWS2000  
+##### 126#       发表于 2025-9-21 02:57
+
+这红毛看起来能被诺曼底轻易解决的杂鱼感，还是写得太low了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  伊露伊道格拉斯  
+##### 127#       发表于 2025-9-21 11:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68347841&amp;ptid=2140549" target="_blank">aptx8285144 发表于 2025-8-31 18:32</a>
+
+你们现在肯定没有什么正常的翻译可看吧？叔叔家那个ai翻译我看了一会儿实在绷不住了而停下来了 ...</blockquote>
+草，这集我看着不像prpr，像润润屋<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+间谍博弈只是背景板，主要讲的是帮人跑路的事
+
+
+*****
+
+####  aptx8285144  
+##### 128#       发表于 2025-9-21 14:51
+
+千世做寿喜锅笑死<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  王九的哥哥  
+##### 129#       发表于 2025-9-21 16:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68465538&amp;ptid=2140549" target="_blank">aptx8285144 发表于 2025-9-21 14:51</a>
+千世做寿喜锅笑死</blockquote>
+你这一说我想起来当初舞台挨拶的时候监督说这一段我们声音做得很细，能听出来牛肉熟没熟，再看的时候可以注意下……<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 130#       发表于 2025-9-21 23:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68464927&amp;ptid=2140549" target="_blank">伊露伊道格拉斯 发表于 2025-9-21 11:38</a>
+
+草，这集我看着不像prpr，像润润屋
+
+间谍博弈只是背景板，主要讲的是帮人跑路的事 ...</blockquote>
+其实剧场版之前已经带老侍从开溜过了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（那次最后是以老侍从被暗杀而失败）
+
+
+*****
+
+####  aptx8285144  
+##### 131#       发表于 2025-9-21 23:32
+
+也算女仆贝子的主场了，<strong>大叔要是帅气青年再找梶裕贵来配肯定更有乐子</strong><img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，去翻阅班固都没记录她的名字，话说比起一脸奸相的兄长，怎么看诺曼底才是稍微有底线的那一方，像这章特纳这样的让步后也就不追究了，感觉结局有可能是叔侄女达成妥协（不过真正的侄女不是你眼前的人这种事不重要了）
+
+
+*****
+
+####  aptx8285144  
+##### 132#       发表于 2025-9-21 23:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68463574&amp;ptid=2140549" target="_blank">没取名啊 发表于 2025-9-20 23:42</a>
+
+感觉现在这个局势润到王国比较好活啊。虽然公主和诺曼底公爵政见不和，但再怎么说磕个头认错的话保小队活命 ...</blockquote>
+主要是除非改共和制，否则按照女王这个身体状态，一脸奸相的兄长不能考虑的话，真要退休难不成把已经去修道院的玛丽重新拉回来吗<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，好吧如果，兄长那么一闹乃至终章后王国还是不是王国不知道（
+
+*****
+
+####  aptx8285144  
+##### 133#       发表于 2025-9-21 23:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68453687&amp;ptid=2140549" target="_blank">孟沁瑶 发表于 2025-9-19 01:59</a>
+
+诺曼底公和L是互相认可的对手，外加第三方势力的情况下其实已经相对容易包饺子了，避免了很多死胡同。
+
+写 ...</blockquote>
+坐在屋子里L那群人要不是没有白鸽小队苦苦维持平衡总感觉是被诺曼底吊打的节奏，光是这次被交换暗杀事就能推列出军方男子就是指使者或这群人都说服不了更上面的人等等可能性（
+
+
+*****
+
+####  aptx8285144  
+##### 134#       发表于 2025-9-22 14:29
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68335908&amp;ptid=2140549" target="_blank">oi99o 发表于 2025-8-28 23:31</a>
+
+原来第四章有资源了，都没关注诺曼底公rip了才想起来</blockquote>
+哎，我才发现诺曼底公爵也是他，老爷子RIP，走好
+
+*****
+
+####  aptx8285144  
+##### 135#       发表于 2025-9-22 14:32
+
+翻阅班固声优表时发现死在多乐茜面前的班长是大桥彩香，没听出来<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  aptx8285144  
+##### 136#       发表于 2025-9-22 17:23
+
+<blockquote>oi99o 发表于 2025-9-20 14:54
+总觉得切手臂这点子应该是要安洁自己想出来才对，而不是要人家自己决定牺牲
+
+论坛助手,iPhone ...</blockquote>
+这章某种意义上来说有两个主角吧，贝子和特纳，贝子其实有点不太适合当特工，即使知道对方是好人，对自己的特殊装备也可以来个灿烂的笑容和一句“这是商业秘密”jpg，不过考虑到之前被特纳救过也算说得过去吧(带着贝子跑那里有一种父女既视感，有点乐)
+
+
+*****
+
+####  璇瑢子R  
+##### 137#       发表于 2025-9-23 12:13
+
+好冷啊。弹弹player也没几条弹幕，到处也没啥讨论
+
+
+*****
+
+####  ardente  
+##### 138#       发表于 2025-9-23 12:56
+
+这部企划能变成拖上十年的六连剧场版就奇怪，第一章的时候字幕都没人做，本土也没什么热度，不知道哪来的信心<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Promeus  
+##### 139#       发表于 2025-9-23 13:18
+
+tv本土还是有热度的，还有大河内操刀的神回，本来是有机会达到yuyuyu的水平的<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">结果最后两话没了大河内收的那叫一个无聊
+
+
+*****
+
+####  上杉打老虎  
+##### 140#       发表于 2025-9-23 15:48
+
+水魔出来前：
+
+TV最后两话为什么要换人啊，把胃口吊起来后又强行包饺子平稳落地真没意思
+
+求求你了，让我看大河内巨巨原定的血流成河的超展开吧，我什么都会做的
+
+水魔出来后：<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  暗黑能乐  
+##### 141#       发表于 2025-9-23 16:22
+
+<img src="https://static.stage1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">不是，不看的人跑来这发病是咋样
+
+
+*****
+
+####  oi99o  
+##### 142#       发表于 2025-9-23 16:42
+
+水魔的时候不也是在吐槽为什么不是大河内的单集脚本，双人脚本是不是意味着改剧本了云云<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  伊露伊道格拉斯  
+##### 143#       发表于 2025-9-23 18:52
+
+槽点太多，很难想象是2025年的言论
+
+
+*****
+
+####  伊露伊道格拉斯  
+##### 144#       发表于 2025-9-23 18:56
+
+<blockquote>ardente 发表于 2025-9-23 12:56
+这部企划能变成拖上十年的六连剧场版就奇怪，第一章的时候字幕都没人做，本土也没什么热度，不知道哪来的信 ...</blockquote>
+听人说好像是学的少战模式，搞什么有生之年剧场版。
+
+不过我也没看过少战，不清楚具体情况就是了。
+
+
+*****
+
+####  ardente  
+##### 145#       发表于 2025-9-23 19:12
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68477564&amp;ptid=2140549" target="_blank">伊露伊道格拉斯 发表于 2025-9-23 18:56</a>
+
+听人说好像是学的少战模式，搞什么有生之年剧场版。
+
+不过我也没看过少战，不清楚具体情况就是了。 ...</blockquote>
+制作公司确实是共同制作的，少战人气热度少说高十倍都有，人家随便玩，prpr学同商法说一句丢人现眼都是好听的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  梦诗歌雪  
+##### 146#       发表于 2025-9-24 17:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68475404&amp;ptid=2140549" target="_blank">ardente 发表于 2025-9-23 12:56</a>
+
+这部企划能变成拖上十年的六连剧场版就奇怪，第一章的时候字幕都没人做，本土也没什么热度，不知道哪来的信 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第一章也是我组的字幕，nico上刚有资源一周就做出来了啊，后面千夏的字幕就隔了很久
+
+
+*****
+
+####  ardente  
+##### 147#       发表于 2025-9-25 08:03
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68482504&amp;ptid=2140549" target="_blank">梦诗歌雪 发表于 2025-9-24 17:33</a>
+
+第一章也是我组的字幕，nico上刚有资源一周就做出来了啊，后面千夏的字幕就隔了很久 ...</blockquote>
+那应该是我记错时间了
+
