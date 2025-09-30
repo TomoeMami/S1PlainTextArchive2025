@@ -1492,3 +1492,107 @@ CAPCOM没做过比较聪明的AI陪伴？做个未来版本的TLOU，不是挺�
 
 实机和之前预想的一样无聊，大概不会买
 
+*****
+
+####  jacket  
+##### 156#       发表于 2025-9-25 04:05
+
+萝莉升级啃硬盘
+
+
+*****
+
+####  蓝雉  
+##### 157#       发表于 2025-9-25 09:49
+
+想喂她吃NS卡带
+
+
+*****
+
+####  霖岚_  
+##### 158#       发表于 2025-9-25 09:54
+
+除了一个啃硬盘有点看头以外毫无乐趣可言，TPS+解密也注定这游戏节奏快不了，本身也不看好这游戏，这次PV只是进一步确认不会玩了
+
+而且这官方译名也真难念，PRAGMATA 识质存在是什么鬼
+
+看完只可惜这年头好像也没高速立回的TPS新作，脑子里有印象的也就一个白金的vanquish了
+
+
+*****
+
+####  Evilgurren  
+##### 159#       发表于 2025-9-25 10:05
+
+感觉要跟恐龙浩劫坐一桌了
+
+
+*****
+
+####  zqqwe  
+##### 160#       发表于 2025-9-25 10:09
+
+日配东山加上这个美术我决定无脑入了，不过这伤害数字希望能关掉
+
+
+*****
+
+####  zzy516232108  
+##### 161#       发表于 2025-9-25 10:20
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68485352&amp;ptid=2252823" target="_blank">霖岚_ 发表于 2025-9-25 09:54</a>
+
+除了一个啃硬盘有点看头以外毫无乐趣可言，TPS+解密也注定这游戏节奏快不了，本身也不看好这游戏，这次PV只 ...</blockquote>
+没看明白什么叫高速立回的TPS，能举例说明下吗
+
+
+*****
+
+####  霖岚_  
+##### 162#       发表于 2025-9-25 10:44
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68485539&amp;ptid=2252823" target="_blank">zzy516232108 发表于 2025-9-25 10:20</a>
+
+没看明白什么叫高速立回的TPS，能举例说明下吗</blockquote>
+不是提了么，白金的绝对征服（VANQUISH），在B站搜个视频看下应该能理解，而且回头一看妈的这都10年的游戏了啊……
+
+就是主角高机动性+敌人多/boss找打点需要频繁位移的TPS
+
+近几年看到的TPS好像都没相似题材的，也就4re这种中近距离带弹反的玩着还有点意思，但主机性能太差了跑步转身举枪都费劲巴拉的
+
+
+*****
+
+####  h122h  
+##### 163#       发表于 2025-9-27 09:56
+
+<img src="https://img.stage1st.com/forum/202509/27/095506sppmvxxp3zvv3uw9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (261.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-27 09:55 上传
+
+绷不住勒，tgs直播试玩出故障，角色不出声。
+
+
+*****
+
+####  Markorca  
+##### 164#       发表于 2025-9-27 10:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68485737&amp;ptid=2252823" target="_blank">霖岚_ 发表于 2025-9-25 10:44</a>
+
+不是提了么，白金的绝对征服（VANQUISH），在B站搜个视频看下应该能理解，而且回头一看妈的这都10年的游 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">老任的乌贼
+
+
+*****
+
+####  herryk159  
+##### 165#       发表于 2025-9-27 10:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我的拉跨雷达响了，这游戏必拉
+
