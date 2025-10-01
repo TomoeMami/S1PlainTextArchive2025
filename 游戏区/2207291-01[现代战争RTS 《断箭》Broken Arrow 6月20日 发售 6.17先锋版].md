@@ -1448,3 +1448,136 @@ regiments和红龙只要进入战斗场景不管是战役还是遭遇战都不�
 水平太参差，自己组恐怕容易成猪队友<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
+*****
+
+####  露综bot一号机  
+##### 112#       发表于 2025-9-22 21:15
+
+一晚上连续遇到外挂，出生点附近的远火和补给被巡航直接点名，演都不演的。骂他4000+他就打滚说大家都开<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  露综bot一号机  
+##### 113#       发表于 2025-9-23 20:05
+
+今晚这20g更新哈人，听说要严打开挂了靠不靠谱
+
+
+*****
+
+####  PresentTime  
+##### 114#       发表于 2025-9-23 20:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68477851&amp;ptid=2207291" target="_blank">露综bot一号机 发表于 2025-9-23 20:05</a>
+今晚这20g更新哈人，听说要严打开挂了靠不靠谱</blockquote>
+在本地计算迁移到服务器和回放系统做好之前你都可以认为反作弊系统很简陋，这次更新主要是退出机制优化、模型更新和平衡性调整
+
+*****
+
+####  露综bot一号机  
+##### 115#       发表于 2025-9-23 20:35
+
+在500分鱼塘被人开挂点名远火太毁游戏体验了
+
+
+*****
+
+####  PresentTime  
+##### 116#       发表于 2025-9-23 20:40
+
+楼友刚开始玩吗，这小众变态游戏低分段人类含量很低的，没招<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  银月术士329  
+##### 117#         楼主| 发表于 2025-9-24 03:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68478014&amp;ptid=2207291" target="_blank">露综bot一号机 发表于 2025-9-23 20:35</a>
+
+在500分鱼塘被人开挂点名远火太毁游戏体验了</blockquote>
+我还有个小号可以和你们打 要打M我
+
+
+*****
+
+####  露综bot一号机  
+##### 118#       发表于 2025-9-24 09:30
+
+<img src="https://static.stage1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">不是低分局也活不下我这种空军都不会用的人了
+
+
+*****
+
+####  PresentTime  
+##### 119#       发表于 2025-9-24 11:48
+
+别怕，我打到1600的时候也还不会用固定翼<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  银月术士329  
+##### 120#         楼主| 发表于 2025-9-26 16:46
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68479753&amp;ptid=2207291" target="_blank">露综bot一号机 发表于 2025-9-24 09:30</a>
+
+不是低分局也活不下我这种空军都不会用的人了</blockquote>
+无所谓吧，我飞机基本只有炸鸡巡航空优，也玩不来制导炸弹+反辐的对地杂技，地面操作好一点维持点，该撤就撤保持好纪律性也随便上分
+
+现代头部都卷到2800的现在，2000分单排随便上的
+
+
+*****
+
+####  露综bot一号机  
+##### 121#       发表于 2025-9-26 23:38
+
+<img src="https://img.stage1st.com/forum/202509/26/233813f3ydsh6dsad8vhs3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-9-26 23:38 上传
+
+啊。。。美利坚。。。我CN的M<img src="https://static.stage1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  妄想騎士  
+##### 122#       发表于 2025-9-27 00:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68494666&amp;ptid=2207291" target="_blank">露综bot一号机 发表于 2025-9-26 23:38</a>
+啊。。。美利坚。。。我CN的M</blockquote>
+吃了战术核弹吧，这个远火阵地被人突防成功
+
+
+*****
+
+####  妄想騎士  
+##### 123#       发表于 2025-9-27 00:46
+
+制导炸弹得地面的眼车和侦察兵去打激光，然后按V低飞开加力去突防，还要队友去一起配合压制防空才能玩好，只有你一个，那2000分攒不出足够的飞机去把这些工作做完
+反辐射也是靠数量去冲爆对面的远防，队友不配合也是没法玩的
+
+
+*****
+
+####  WGTCorp  
+##### 124#       发表于 2025-9-27 01:35
+
+地面激光因为射程和视线阻挡，其实不太适合引导空袭（如果能一直标记的话，直接拿炮炸就行）。制导炸弹都是自扔自导的，基本就是f35a挂2000磅和哈姆，开禁火靠高隐蔽接近目标，用普通轰炸指令（比精准打击指令快）瞄准大概位置，然后用自带的激光去引导，哈姆用来在飞机爬升投弹的时候挡重防提高生存率。其他飞机因为隐蔽和挂载的原因都不适合这么玩，还是带高阻铁炸弹或者导弹吧。
+
+类似的还有su57带反辐射和集束巡航，用反辐射给巡航挡刀强杀高富帅，以及f15ex带4发哈姆和3发jassm，同时反辐射和对地支援。
+
+
+*****
+
+####  露综bot一号机  
+##### 125#       发表于 2025-9-28 22:30
+
+最近怎么一直排德国服务器。延迟又高又不稳定，一局总是掉3 4个
+
