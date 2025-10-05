@@ -1147,3 +1147,10 @@ https://www.gamersky.com/handbook/202507/1963876.shtml</blockquote>
 
 像这种小体量游戏云豹也是有经验的（魔女之泉、方根胶卷），不用过多担忧也不用抱过多期待...
 
+*****
+
+####  aiyouo  
+##### 115#       发表于 2025-10-2 20:42
+
+刚把狐狸篇打完，太好玩了，好久没遇到过美术音乐和玩法都完美符合我口味的独立游戏，玩这游戏让我想起了当年看越狱第一季和玩逃脱者时的感受，太爽了，接下来该尝尝黑豹篇的水平了<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
