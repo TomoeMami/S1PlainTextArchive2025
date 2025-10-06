@@ -7220,3 +7220,12 @@ FES人设是FEH里也很活跃的ニジハヤシ啊
 
 现在想来这手游是不是给FEH每年的兽化池子和暗堕池子攒素材啊<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+*****
+
+####  JOJOROY  
+##### 684#       发表于 2025-10-3 19:12
+
+<img src="https://i.postimg.cc/hvFmbwtJ/a0943b10977dd116dc49433aa8b98542.png" referrerpolicy="no-referrer">
+
+之前报道过的那位给Switch做知名SPRG系列续作的已经更新成万紫千红了，比较奇怪的是东京任天堂找的外包
+
