@@ -284,3 +284,10 @@
 
 第一话千纱的配音怎么怪怪的，总是变声调？而且这音量太小了吧。<img src="https://static.stage1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+*****
+
+####  collincollin  
+##### 1377#         楼主| 发表于 2025-10-5 15:25
+
+最终回（伪）
+
