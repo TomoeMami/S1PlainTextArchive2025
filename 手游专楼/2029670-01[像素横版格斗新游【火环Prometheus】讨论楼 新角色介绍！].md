@@ -530,3 +530,56 @@ dnfm也要上了，横版act赛道肯定竞争不过。
 
 据说正常上线没什么问题, 之后怎么样就不好说了
 
+*****
+
+####  雷攻姛人  
+##### 52#       发表于 2025-10-7 18:56
+
+看了一下测试服的视频，怎么感觉就是差一口气啊<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  uyghgyg  
+##### 53#       发表于 2025-10-7 22:14
+
+感觉还是卡池问题最大
+
+
+*****
+
+####  格雷殿下  
+##### 54#       发表于 2025-10-7 22:34
+
+还以为出了，原来还没出吗
+
+
+*****
+
+####  雷攻姛人  
+##### 55#       发表于 2025-10-7 22:38
+
+现在这架势真的能落地吗，悲观，实在不行做成买断制单机吧
+
+
+*****
+
+####  Sopp  
+##### 56#       发表于 2025-10-8 10:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68538174&amp;ptid=2029670" target="_blank">雷攻姛人 发表于 2025-10-7 22:38</a>
+
+现在这架势真的能落地吗，悲观，实在不行做成买断制单机吧</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">单机玩家能看上它啥
+
+
+*****
+
+####  HEERO.W  
+##### 57#       发表于 2025-10-8 17:25
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68538174&amp;ptid=2029670" target="_blank">雷攻姛人 发表于 2025-10-7 22:38</a>
+
+现在这架势真的能落地吗，悲观，实在不行做成买断制单机吧</blockquote>
+不是，都付费测了，落地是很难的一件事吗？成千上万个抽卡二游里，付费测后不公测的都不到一只手。你悲观个啥，还不如悲观下这个质量铁活不到周年
+
