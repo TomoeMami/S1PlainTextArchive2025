@@ -1820,3 +1820,14 @@ cy是不是抬头一看,已经追不上其他对手的开发能力了?
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+*****
+
+####  syndrome2032  
+##### 18270#       发表于 2025-10-10 08:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68518433&amp;ptid=1158205" target="_blank">oyss 发表于 2025-10-2 02:22</a>
+cy还有人么.这下.
+
+退坑好久了.不了解现状了.</blockquote>
+cy手上这几年新的不就马娘和学马
+
