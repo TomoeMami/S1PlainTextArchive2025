@@ -3678,3 +3678,26 @@ TVアニメ「TRIGUN STARGAZE」
 
 ニコラス・D・ウルフウッド：細谷佳正
 
+*****
+
+####  Piano-Forest  
+##### 370#         楼主| 发表于 2025-10-11 14:30
+
+◤
+
+　＃TRIGUN STARGAZE
+
+　　キービジュアル解禁
+
+　                            　　　◢
+
+　
+
+もう、ひとりじゃない。
+
+2026年1月　テレ東系列にて放送開始
+
+🔸特報映像はこちらから
+[https://youtu.be/1pr_uEqKJ74](https://youtu.be/1pr_uEqKJ74)
+<img src="https://p.sda1.dev/27/e3593fa84ee9412ee20100441f73c31e/20251011_142819.jpg" referrerpolicy="no-referrer">
+
