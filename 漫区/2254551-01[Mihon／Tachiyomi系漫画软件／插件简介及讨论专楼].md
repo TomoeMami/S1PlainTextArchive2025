@@ -1116,3 +1116,18 @@ magazine pocket的插件还没修吗……最近都用ai写了个给加密图片
 
 有什么好用的直接翻译屏幕的APP推荐么？现在汉化组少了不少了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+*****
+
+####  lcn  
+##### 100#       发表于 2025-10-13 00:17
+
+优酷漫画能读取更新不能看，有人遇到吗？
+
+*****
+
+####  Mchaos  
+##### 99#       发表于 2025-10-12 09:19
+
+有没有好用的生肉源推荐下，以前用的好像都杀的差不多了
+
+
