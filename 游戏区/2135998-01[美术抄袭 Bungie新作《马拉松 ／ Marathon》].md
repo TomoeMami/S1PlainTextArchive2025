@@ -1004,3 +1004,57 @@ Bunige 脸都不要了，已经不是第一次了
 
 Fairgame+马拉松, 一起剑指2026. 必将歼灭NS2随着游戏机发售陆陆续续来的游戏, 任天堂已无可用之兵.
 
+*****
+
+####  byisme001  
+##### 92#       发表于 2025-10-12 15:12
+
+《失落星船：马拉松》封闭技术测试将于北京时间2025年10月23日1：00-10月29日1：00在PS5上举行。测试仅支持英文，需遵守保密协议。
+PS5版测试面向北美、南美、欧洲、中东、非洲、印度、澳大利亚、新西兰开放。
+
+还没放弃啊
+
+
+*****
+
+####  Sopp  
+##### 93#       发表于 2025-10-12 19:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68559308&amp;ptid=2135998" target="_blank">byisme001 发表于 2025-10-12 15:12</a>
+
+《失落星船：马拉松》封闭技术测试将于北京时间2025年10月23日1：00-10月29日1：00在PS5上举行。测试仅支持 ...</blockquote>
+咋放弃啊，这可是献祭了命运拿出来的全力一击<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  llysander  
+##### 94#       发表于 2025-10-12 19:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还打算卖钱呐
+
+棒鸡内部现在估计地狱绘卷场面 , 强行出跟清算无异
+
+
+*****
+
+####  黛冬優子  
+##### 95#       发表于 2025-10-12 19:51
+
+听说卖40刀？
+
+*****
+
+####  卡拉德利姆  
+##### 96#       发表于 2025-10-12 19:54
+
+星鸣特工也是40刀吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  风景很好  
+##### 97#       发表于 2025-10-12 20:05
+
+有免费的竞品，谁还玩付费啊！
+
