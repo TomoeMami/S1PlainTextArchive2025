@@ -1595,3 +1595,21 @@ group内多人互动的特殊事件不少，加上羁绊剧情写得都不错，
 
   </blockquote>
 
+*****
+
+####  07579394  
+##### 110#       发表于 2025-10-13 12:16
+
+看七海和实唯菜的声优自己玩shine post<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1g54KzHEXj/?t=356&amp;p=2](https://www.bilibili.com/video/BV1g54KzHEXj/?t=356&amp;p=2)
+
+新账号玩水平太低，厂商要调满级后再演示<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时空之旅  
+##### 111#       发表于 2025-10-13 12:57
+
+美术风格很对我味口，又是经营养成更对味口，但是你踏马2025年了居然连个中文都不出。。。。
+
