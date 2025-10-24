@@ -1767,3 +1767,22 @@ mr beast入驻没几天也炸了
 
 龟龟最后一天被石油佬无限加时笑死了，倒计时好几次到1分钟内硬是又被加时5-10分钟，导致龟龟熬了一整晚到现在还在直播<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  VictorWJ  
+##### 158#       发表于 2025-10-21 02:30
+
+看了昨天anny的心碎发言，没想到俄乌战争竟然会以这种方式影响人的生活……世界果然是一体的吗……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  kykawaiii  
+##### 159#       发表于 2025-10-21 09:52
+
+没想到anny真的动情了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
