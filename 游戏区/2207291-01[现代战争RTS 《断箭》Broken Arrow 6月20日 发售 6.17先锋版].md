@@ -1581,3 +1581,16 @@ regiments和红龙只要进入战斗场景不管是战役还是遭遇战都不�
 
 最近怎么一直排德国服务器。延迟又高又不稳定，一局总是掉3 4个
 
+*****
+
+####  露综bot一号机  
+##### 126#       发表于 2025-10-25 10:33
+
+<img src="https://img.stage1st.com/forum/202510/25/103300fho7r6zha6l37jal.png" referrerpolicy="no-referrer">
+
+<strong>cbfebfb097bcfc0c9c5b75d15ffeb17a.png</strong> (119.58 KB, 下载次数: 0)
+
+下载附件
+
+2025-10-25 10:33 上传
+
