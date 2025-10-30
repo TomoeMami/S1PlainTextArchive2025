@@ -1190,3 +1190,22 @@ https://ttcg.jp/theatre_shinjuku/top ...</blockquote>
 米国上映日は 11/11(火)と11/13(木)！
 <img src="https://p.sda1.dev/27/095c3b70aa21aca90b0ff0a96b55eda1/20251013_153627.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  AraTurambar  
+##### 119#       发表于 2025-10-27 08:12
+
+美国电影院已经有预告了，等11月上了二刷。
+
+武器真的很讨人喜欢。
+
+
+*****
+
+####  小学生把持不住  
+##### 120#       发表于 2025-10-27 10:52
+
+ 本帖最后由 小学生把持不住 于 2025-10-27 10:53 编辑 
+
+系列每部就只有OVA的长度而且是各自独立的？  这不就是相当于梅津泰臣独享的日本老登动画人展览会实验性动画短片集，梅津想翻车都有难度吧。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
