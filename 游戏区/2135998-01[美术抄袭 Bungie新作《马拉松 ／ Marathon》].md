@@ -1058,3 +1058,29 @@ PS5版测试面向北美、南美、欧洲、中东、非洲、印度、澳大�
 
 有免费的竞品，谁还玩付费啊！
 
+*****
+
+####  泰坦失足  
+##### 98#       发表于 2025-11-4 06:39
+
+<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+[https://x.com/ShitpostRock/status/1983408454653067314/](https://x.com/ShitpostRock/status/1983408454653067314/)
+
+<img src="https://img.stage1st.com/forum/202511/04/063914fiu1e0zx7kuvkxog.jpg" referrerpolicy="no-referrer">
+
+<strong>G4ZoiW9XEAAoXbr.jpg</strong> (189.06 KB, 下载次数: 0)
+
+下载附件
+
+2025-11-4 06:39 上传
+
+
+*****
+
+####  泰坦失足  
+##### 99#       发表于 2025-11-4 06:53
+
+【打起来还挺爽 棒鸡搜打撤《马拉松》实机演示】 [https://www.bilibili.com/video/BV12HsqzFEXC/](https://www.bilibili.com/video/BV12HsqzFEXC/)
+
+这个10月新版的测试看着还行. COD赶紧把DMZ复活吧. 就看大厂哪个第一个吃下搜打撤这个蓝海了.
+
