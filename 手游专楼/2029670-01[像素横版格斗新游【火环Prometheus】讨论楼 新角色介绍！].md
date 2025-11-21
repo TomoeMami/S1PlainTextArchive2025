@@ -583,3 +583,30 @@ dnfm也要上了，横版act赛道肯定竞争不过。
 现在这架势真的能落地吗，悲观，实在不行做成买断制单机吧</blockquote>
 不是，都付费测了，落地是很难的一件事吗？成千上万个抽卡二游里，付费测后不公测的都不到一只手。你悲观个啥，还不如悲观下这个质量铁活不到周年
 
+*****
+
+####  uyghgyg  
+##### 58#       发表于 2025-11-18 19:31
+
+11.28公测<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来猜猜能活几个月
+
+
+*****
+
+####  MobileMeowbot  
+##### 59#       发表于 2025-11-18 21:11
+
+ 本帖最后由 MobileMeowbot 于 2025-11-18 21:13 编辑 
+
+挑战今年国产二次元那个“开服80天最后一次内容更新，第二个80天无任何公告关闭服务器”的速通纪录是不太可能了。
+
+官网也太简陋了。
+
+
+*****
+
+####  妄想系同盟  
+##### 60#       发表于 2025-11-18 22:21
+
+半年<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
