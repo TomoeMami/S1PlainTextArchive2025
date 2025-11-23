@@ -2257,3 +2257,10 @@ steam版打了补丁之后和dl版内容是一样的（甚至因为作者打包�
 
 —— 来自 HONOR ALI-AN00, Android 15, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+*****
+
+####  红魔馆的糖  
+##### 193#       发表于 2025-11-20 22:59
+
+二代11月29日上steam
+
