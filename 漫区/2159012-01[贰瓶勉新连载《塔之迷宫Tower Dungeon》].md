@@ -1280,3 +1280,54 @@ zaimanhua，manhuagui这些都行
 安全守卫出场，东亚重工还远吗</blockquote>
 我记得安全守卫一开始就出场了吧<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  mishidexieyu  
+##### 142#       发表于 2025-11-23 17:02
+
+<img src="https://static.stage1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">剧情忘光了干脆昨晚从头看了一遍，爽啊
+
+最新话终于把男主一开始喂的鸡类生物名字点出来了：
+
+豆豆羊
+
+草
+
+
+*****
+
+####  鱼雷鲨  
+##### 143#       发表于 2025-11-23 23:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67861144&amp;ptid=2159012" target="_blank">zzf111 发表于 2025-5-29 02:21</a>
+
+自汉化截至第18话为止的4ch网友整体的关系表</blockquote>
+对了，Minsaber这个名字跟BLAME里面Mensab一样，其实都是Main Server主服务器的变体
+
+
+*****
+
+####  zzf111  
+##### 144#       发表于 2025-11-23 23:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68768766&amp;ptid=2159012" target="_blank">鱼雷鲨 发表于 2025-11-23 23:51</a>
+
+对了，Minsaber这个名字跟BLAME里面Mensab一样，其实都是Main Server主服务器的变体 ...</blockquote>
+日本人vb不分搞得好多隐藏信息都get不到<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 145#       发表于 2025-11-24 01:04
+
+刚补到最新话，猫猫不会要寄了吧
+
+
+*****
+
+####  屡败屡战阿巴顿  
+##### 146#       发表于 2025-11-24 08:47
+
+敏莎布我一直以为是main sub的意思，次级总线？
+
