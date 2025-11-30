@@ -3958,3 +3958,14 @@ Zach-like游戏QuantumPulse 2A有人玩吗？看到个管人在玩lol
 
 metroidbrainia的范畴越来越怪了，逛了一下r/metroidbrainia，为啥现在连奥伯拉丁like和8号出口like都要标榜自己是metroidbrainia啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+*****
+
+####  铃森冬  
+##### 277#       发表于 2025-11-28 00:56
+
+[https://cubestudio.itch.io/nuworm](https://cubestudio.itch.io/nuworm)
+
+机制设计相当自然而精妙的类推箱小品，好像是前两天刚出的，网页端免费开玩，体感通关时长大概2～3h
+
+游戏名字里带 worm，机制涉及的概念上也是和虫罐 Can of wormholes 相对重合的比较多，玩过虫罐的话整个机制理解起来会稍微占一点点便宜
+
