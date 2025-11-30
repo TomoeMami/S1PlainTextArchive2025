@@ -2577,3 +2577,10 @@ BOSS非常难锁定，暂时卡住了
 
 刚开始玩，该说不愧是VN厂做的，这近战手感真有点烂吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+*****
+
+####  不灭的旋律  
+##### 227#       发表于 2025-11-27 18:01
+
+更新高难模式，追加三件DLC衣装。赫罗斯的外交用服……你们真是这样搞外交的吗？
+
