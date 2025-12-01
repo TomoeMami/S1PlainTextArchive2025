@@ -831,3 +831,58 @@ AI未亡人的老公头发跟男主一模一样（性格也差不多） 搞不�
 
 可惜，当初看到冬瓜奶还挺感兴趣的<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+*****
+
+####  JuicyJuice  
+##### 76#         楼主| 发表于 2025-11-28 12:06
+
+<img src="https://img.stage1st.com/forum/202511/28/120648eg5h6u983mq5s9bw.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" width="800" zoomfile="https://img.stage1st.com/forum/202511/28/120648eg5h6u983mq5s9bw.jpeg">
+
+<strong>IMG_7805.jpeg</strong> (241.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-11-28 12:06 上传
+
+啊？你没死啊？
+
+
+*****
+
+####  natlk  
+##### 77#       发表于 2025-11-28 12:46
+
+人气也不高休到明年三月读者估计全跑了
+
+
+*****
+
+####  siebten  
+##### 78#       发表于 2025-11-28 13:21
+
+休载原因不能说就是大人的问题 那为何还要明年三月再开啊……
+
+*****
+
+####  王九的哥哥  
+##### 79#       发表于 2025-11-28 13:25
+
+根据经验，九成九是小学馆的锅<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  无动于衷  
+##### 80#       发表于 2025-11-28 13:26
+
+那玩具还出不出了
+
+
+*****
+
+####  八坂真寻  
+##### 81#       发表于 2025-11-28 13:55
+
+小学馆这也太草台了
+
