@@ -1282,3 +1282,86 @@ okok 我试下
 
 —— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+*****
+
+####  azbhg1  
+##### 115#         楼主| 发表于 2025-12-1 18:11
+
+有没有用j2k的，突然 再漫画 就看不了了，所有漫画都报错这个
+
+<img src="https://image.ys-8.de/file/1764583903247_Telegram_cQSnGm8MyB.png" referrerpolicy="no-referrer">
+
+只有j2k没法看，mihon，yokai，komikku都正常
+
+
+*****
+
+####  慈父斯大林  
+##### 116#       发表于 2025-12-2 12:19
+
+我用mihon，再漫画同款报错已经有半个月了。
+
+
+*****
+
+####  zhongjie  
+##### 117#       发表于 2025-12-2 14:15
+
+看R18韩漫推荐哪个源？禁漫老是要验证
+
+
+*****
+
+####  azbhg1  
+##### 118#         楼主| 发表于 2025-12-2 15:22
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68812694&amp;ptid=2254551" target="_blank">慈父斯大林 发表于 2025-12-2 12:19</a>
+
+我用mihon，再漫画同款报错已经有半个月了。</blockquote>
+是最新版吗，我的mihon没报错
+
+
+*****
+
+####  慈父斯大林  
+##### 119#       发表于 2025-12-2 18:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68813616&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-12-2 15:22</a>
+是最新版吗，我的mihon没报错</blockquote>
+是最新版。
+
+
+*****
+
+####  kk霖洞九  
+##### 120#       发表于 2025-12-4 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68809492&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-12-1 18:11</a>
+有没有用j2k的，突然 再漫画 就看不了了，所有漫画都报错这个</blockquote>
+我上个月mihon也出这个报错，后来是用之前楼内一样的方案清楚数据卸载插件重装再登录解决的
+
+
+*****
+
+####  azbhg1  
+##### 121#         楼主| 发表于 2025-12-4 18:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68824625&amp;ptid=2254551" target="_blank">kk霖洞九 发表于 2025-12-4 15:30</a>
+
+我上个月mihon也出这个报错，后来是用之前楼内一样的方案清楚数据卸载插件重装再登录解决的 ...</blockquote>
+我另一台设备重新安装j2k也报这个错
+
+插件开发者确认过是网站返回数据的问题，j2k用的库太旧了无法处理
+
+
+*****
+
+####  陌生的天花扳  
+##### 122#       发表于 2025-12-5 23:08
+
+<blockquote>jackyhuang 发表于 2025-10-28 11:52
+拷贝半年上不去了，换域名换插件**都试过了
+
+—— 来自 Sony XQ-AT72, Android 12, 鹅球 v3.5.99 ...</blockquote>
+拷贝源可以试试这个：https://raw.githubusercontent.com/LittleSurvival/copymanga-copy20/repo/index.min.json
+
