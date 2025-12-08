@@ -705,3 +705,24 @@ Q3还是我的主力娱乐机，但多个玩具又有什么坏处呢，玩HiFi�
 这是一个没有终止条件的循环。
 明日复明日，明日何其多<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+*****
+
+####  勿徊哉  
+##### 63#       发表于 2025-12-5 09:23
+
+不要啊<blockquote>For […] stereoscopic 3D content on [Frame], we don’t currently support it, but it’s on our list.”
+“对于[Frame]上的立体 3D 内容，我们目前不支持，但这是我们的待办事项之一。”
+
+The company further said it’s considering a system-level implementation that could display any stereoscopic 3D content, whether it’s stereoscopically rendered games, videos, or photos. Should the stereoscopic 3D feature be built, Valve told me it would “be our goal” to be able to display such content when streamed from a PC or rendered directly on the headset itself.
+该公司还表示，正在考虑一种系统级的实现方式，可以显示任何立体 3D 内容，无论是立体渲染的游戏、视频还是照片。如果实现立体 3D 功能，Valve 告诉我，他们的目标是能够在从 PC 流媒体传输或直接在头显上渲染时显示此类内容。</blockquote>
+
+
+*****
+
+####  勿徊哉  
+##### 64#       发表于 2025-12-5 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68827249&amp;ptid=2267134" target="_blank">勿徊哉 发表于 2025-12-5 09:23</a>
+不要啊</blockquote>
+感觉即使能实现要下一代了
+
