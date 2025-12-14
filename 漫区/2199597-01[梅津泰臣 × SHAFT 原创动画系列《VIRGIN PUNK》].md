@@ -1209,3 +1209,45 @@ https://ttcg.jp/theatre_shinjuku/top ...</blockquote>
 
 系列每部就只有OVA的长度而且是各自独立的？  这不就是相当于梅津泰臣独享的日本老登动画人展览会实验性动画短片集，梅津想翻车都有难度吧。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Piano-Forest  
+##### 121#         楼主| 发表于 2025-12-11 13:21
+
+<img src="https://p.sda1.dev/29/354a3bc0068dfaae4a56011e5df2a2f2/20251211_131959.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/4c3840cd982178231ddfd9a9f5b81814/20251211_132008.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/b6f8ecd08aed7f987c678d9cab6a29e7/20251211_132014.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/8213d148183dc276873504076b41b565/20251211_132019.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 122#         楼主| 发表于 2025-12-11 13:22
+
+◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢
+
+ヴァージン・パンク Clockwork Girl
+
+　　  Blu-ray 豪華版／通常版
+
+　　 2026年3月25日発売決定
+
+◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢
+
+店舗購入特典などの詳細は、
+
+公式サイトをご確認ください▼
+[https://virgin-punk.com/bluray/](https://virgin-punk.com/bluray/)
+<img src="https://p.sda1.dev/29/8a903eccebd8615de4e495db73b26184/20251211_130837.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/87a42d4866989ac0c41b5c118c9f45fd/20251211_130936.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/c01a24eab7e83ac8d95fc0eeb82a245a/10001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/f39edd4d0ac2f6c29ff8548115e109a9/10002.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  manyin1  
+##### 123#       发表于 2025-12-11 16:28
+
+好，至少有得看了
+
