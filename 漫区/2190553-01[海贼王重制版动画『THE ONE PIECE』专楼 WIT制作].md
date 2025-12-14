@@ -684,3 +684,12 @@ WIT霸权社的#重制版海贼王动画#自从去年8月以来，已经快1年�
 NGA 二原参与回帖
 [https://nga.178.com/read.php?tid=45453851](https://nga.178.com/read.php?tid=45453851)
 
+*****
+
+####  Piano-Forest  
+##### 45#         楼主| 发表于 2025-12-11 22:23
+
+<img src="https://p.sda1.dev/29/8114f254ad17bb803d23cb66dedfc666/IMG_20251211_222005.jpg" referrerpolicy="no-referrer">
+
+ワンピースジャンプフェスタ2026のジャンプスーパーステージにて”超特報”が飛び出す予定
+
