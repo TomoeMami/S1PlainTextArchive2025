@@ -379,3 +379,25 @@
 
 本来9月再开的延期到了12月8日了...
 
+*****
+
+####  azbhg1  
+##### 1230#       发表于 2025-12-16 02:16
+
+<img src="https://image.ys-8.de/file/1765822426691_msedge_aGfcSETsFn.png" referrerpolicy="no-referrer">
+<img src="https://image.ys-8.de/file/1765822558799_ApplicationFrameHost_8d6xmibqEU.png" referrerpolicy="no-referrer">
+<img src="https://image.ys-8.de/file/1765822578866_ApplicationFrameHost_ftCsxWBmRI.png" referrerpolicy="no-referrer">
+
+这些逼精灵怎么全是一个脸啊<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  azbhg1  
+##### 1231#       发表于 2025-12-16 02:24
+
+<img src="https://p.sda1.dev/29/5f42453f8f1f5d7b0e28ab54ce2459c1/04c418894e2c32535527e129647cd979.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/a29d7de77b51edb53e2fbf48c1b7c688/e7818e299bff1a27deaf95cbdbfad42a.png" referrerpolicy="no-referrer">
+
+幽默，你们两这也能同期复刊是吧
+
