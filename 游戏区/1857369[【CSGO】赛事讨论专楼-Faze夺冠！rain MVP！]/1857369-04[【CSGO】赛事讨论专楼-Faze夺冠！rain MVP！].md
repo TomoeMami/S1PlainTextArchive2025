@@ -1617,3 +1617,773 @@ STAGE1没想过LVG和RA连HUNS都打不过
 
 faze的比赛就是好看啊，昨晚的vip打地鼠 vs vip马里奥给我看笑死了
 
+*****
+
+####  heseran  
+##### 4830#       发表于 2025-12-7 01:36
+
+老尼和外星人图一太关键了，这翻了
+
+
+*****
+
+####  我比你蠢真的  
+##### 4831#       发表于 2025-12-7 02:11
+
+😩😩spirit感觉要亲手为falcons戴上皇冠了呀
+
+*****
+
+####  我比你蠢真的  
+##### 4832#       发表于 2025-12-7 02:12
+
+借口问一句泥潭有cs群吗？5e a+，最近咸鱼了只打官匹pro和tg
+
+
+*****
+
+####  stlover  
+##### 4833#       发表于 2025-12-7 08:19
+
+这剧情真得被哥哥送走，给自己画上一个完美的句号吧
+
+
+*****
+
+####  heseran  
+##### 4834#       发表于 2025-12-7 09:03
+
+幸亏只看了图一<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  heseran  
+##### 4835#       发表于 2025-12-9 23:48
+
+我操，老汤要去100T了。
+
+据多位向HLTV和Dust2.dk透露消息的知情人士称，device预计将以狙击手身份加盟100 Thieves。目前双方的谈判已进入后期阶段。这笔转会预计还将促成他与Astralis老队友gla1ve的重聚，后者将出任100 Thieves主教练。
+
+
+*****
+
+####  朔方原的星  
+##### 4836#         楼主| 发表于 2025-12-10 00:13
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849552&amp;ptid=1857369" target="_blank">heseran 发表于 2025-12-9 23:48</a>
+
+我操，老汤要去100T了。
+
+据多位向HLTV和Dust2.dk透露消息的知情人士称，device预计将以狙击手身份加盟100  ...</blockquote>
+最后一舞了，这回是真养老了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 4837#         楼主| 发表于 2025-12-12 00:25
+
+伟神神了，感觉要把猎鹰一脚踢死了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 4838#       发表于 2025-12-12 00:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860169&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2025-12-12 00:25</a>
+伟神神了，感觉要把猎鹰一脚踢死了</blockquote>
+猎鹰手枪局拿不下就直接图二
+
+
+*****
+
+####  heseran  
+##### 4839#       发表于 2025-12-12 00:35
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一脚踢死
+
+
+*****
+
+####  宝儿  
+##### 4840#       发表于 2025-12-12 00:40
+
+哲伟！
+
+
+*****
+
+####  朔方原的星  
+##### 4841#         楼主| 发表于 2025-12-12 00:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860206&amp;ptid=1857369" target="_blank">heseran 发表于 2025-12-12 00:35</a>
+
+一脚踢死</blockquote>
+我冠军组作业只花了一分钟做，都靠第一印象随手拉的，对于猎鹰被一脚踢死这事我连一秒都没犹豫<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Niko最需要的是个心理医生，靠自己虾病是永远治不好了
+
+
+*****
+
+####  heseran  
+##### 4842#       发表于 2025-12-12 00:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860235&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2025-12-12 00:42</a>
+我冠军组作业只花了一分钟做，都靠第一印象随手拉的，对于猎鹰被一脚踢死这事我连一秒都没犹豫Niko最需要 ...</blockquote>
+图一猎鹰有两个3-15的纯蛆<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一图一niko就算不虾也带不赢吧，太变态了。
+
+
+*****
+
+####  zpl123  
+##### 4843#       发表于 2025-12-12 02:06
+
+男人一生只哭十九次：Niko梦碎克卢日纳波卡Major、Niko梦碎哥伦布Major、Niko梦碎科隆Major、Niko梦碎亚特兰大Major、Niko梦碎克拉科夫Major、Niko梦碎波士顿Major、Niko梦碎伦敦Major、Niko梦碎卡托维兹Major、Niko梦碎柏林Major、Niko梦碎斯德哥尔摩Major、Niko梦碎安特卫普Major、Niko梦碎里约RMR、Niko梦碎巴黎Major、Niko梦碎哥本哈根Major、Niko梦碎上海Major、Niko梦碎奥斯汀Major、Niko梦碎布达佩斯Major、Niko梦碎科隆Major（待定）、Niko梦碎新加坡Major（待定）
+
+*****
+
+####  yourSwaTer  
+##### 4844#       发表于 2025-12-12 02:09
+
+看完收工睡觉<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 4845#       发表于 2025-12-12 02:11
+
+这把杀第一也没赢啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  77BBC  
+##### 4846#       发表于 2025-12-12 02:16
+
+一晚上双五杀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Niyah  
+##### 4847#       发表于 2025-12-12 02:19
+
+外卖都没吃完就没了，下一场还延时，看个剧吃了直接睡了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 4848#         楼主| 发表于 2025-12-12 02:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860253&amp;ptid=1857369" target="_blank">heseran 发表于 2025-12-12 00:53</a>
+图一猎鹰有两个3-15的纯蛆有一说一图一niko就算不虾也带不赢吧，太变态了。 ...</blockquote>
+主要是Niko待过的每个阵容都有不稳定choke抗压差的虾病，你要我说他是罪魁祸首那空口无凭，但我很难不怀疑这事是不是和他脱不了干系
+
+
+*****
+
+####  zhacaizn  
+##### 4849#       发表于 2025-12-12 02:33
+
+马西西只是一个位置
+
+*****
+
+####  heseran  
+##### 4850#       发表于 2025-12-12 02:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860430&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2025-12-12 02:21</a>
+主要是Niko待过的每个阵容都有不稳定choke抗压差的虾病，你要我说他是罪魁祸首那空口无凭，但我很难不怀 ...</blockquote>
+说白了niko待过的每个阵容关键时刻都得靠他兜底啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，其他人真不行，就连相对来说算是稳定的瓜皇都是个软脚虾，15比11那波马枪就注定我永远不可能原谅瓜皇了，记忆犹新，太丑陋了。
+
+
+*****
+
+####  doublehit  
+##### 4851#       发表于 2025-12-12 02:45
+
+上海的g2跟这次的猎鹰就像一个二流反派角色，平时狂赢对手就是为了在最重要的时候输给对方。就没有当主角的命<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23113RKC6C, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  Rainwedell  
+##### 4852#       发表于 2025-12-12 02:46
+
+尼尼经典剧情，社区氛围和粉丝又到新循环了，直接说踢谁吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  朔方原的星  
+##### 4853#         楼主| 发表于 2025-12-12 03:06
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68860461&amp;ptid=1857369" target="_blank">Rainwedell 发表于 2025-12-12 02:46</a>
+尼尼经典剧情，社区氛围和粉丝又到新循环了，直接说踢谁吧
+
+—— 来自 S1Fun ...</blockquote>
+我挺想看zonic和k3都走的，看看这出戏能循环到什么时候
+
+
+*****
+
+####  stlover  
+##### 4854#       发表于 2025-12-12 08:16
+
+就这水平还有粉丝天天幻想donk来代练major吗
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 4855#       发表于 2025-12-12 08:35
+
+等Niko熬到34岁等来自己的雨神吗
+不对啊，Niko自己不就该承担雨神的责任吗
+
+
+*****
+
+####  longlivedick  
+##### 4856#       发表于 2025-12-12 08:43
+
+接下来换谁，k3、teses还是左尼克？
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+*****
+
+####  桃园张三  
+##### 4857#       发表于 2025-12-12 08:47
+
+cs没有十擒。
+
+
+*****
+
+####  Schw  
+##### 4858#       发表于 2025-12-12 08:49
+
+海鲜榜top1像国内某个龟类dota选手一样，粉丝都把转会来的天才少年认成儿子，结果也把儿子们带成海鲜，让人感叹.<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mimic  
+##### 4859#       发表于 2025-12-13 03:13
+
+FAZE UP!!!
+
+
+*****
+
+####  laputah  
+##### 4860#       发表于 2025-12-13 07:19
+
+<blockquote>爱护动物抓根宝 发表于 2025-12-12 08:35
+等Niko熬到34岁等来自己的雨神吗
+
+不对啊，Niko自己不就该承担雨神的责任吗</blockquote>
+马天雨早给niko坑麻了 没想到牢无可牢一走他回光反照了 
+
+
+*****
+
+####  Sevenzerofive  
+##### 4861#       发表于 2025-12-13 07:42
+
+黑豹竟然寄了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">出乎意料
+
+—— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  icecry  
+##### 4862#       发表于 2025-12-13 07:55
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快出来看上帝，jame之前的赛前预测
+
+我通常不做赛果预测，因为我和随便哪个普通路人一样容易翻车，所以以下内容纯属直觉，基于超自然力量、星象风水之类的。
+
+Spirit对阵Falcons—donk处于巅峰期(我看过他在HLTV上有几次Rating飙到了1.7)，不知为何觉得现在正是Spirit获胜的绝佳时机—纯粹是直觉。
+
+Vitality对阵The MongolZ—无需解释。选Vitality就完事了。
+
+FURIA对阵NAVI—局势似乎都倒向FURIA，但我感觉NAVI可能会调整状态，在这一场比赛中爆冷。我还不能完全确定FURIA是否真的强到了这种地步—也许我只是还没习惯他们突然跻身S级强队行列(Vitality长期处于这一层级)，而在那个层级里，比赛出现意外的概率要低得多。
+
+MOUZ对阵FaZe看起来也是组有趣的对决，而且不同于FURIA打NAVI那场，这组对决中处于下风的一方(也就是FaZe)爆冷获胜的机会感觉要大得多。
+
+我倾向于认为最后两场比赛的强队更有可能遭遇意外。 总之，想法就是这些，兄弟们。看看结果如何—如果这种“分析”中了，我会一直更到Major结束。
+
+
+*****
+
+####  朔方原的星  
+##### 4863#         楼主| 发表于 2025-12-13 08:09
+
+再见了，金小币👋🏻
+
+
+*****
+
+####  longlivedick  
+##### 4864#       发表于 2025-12-13 08:20
+
+赢g2的三支队全倒在八强了
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  宝儿  
+##### 4865#       发表于 2025-12-13 09:30
+
+狗屎波哈  被一脚踹死 <img src="https://static.stage1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">   小驴加油加油啊！
+
+
+*****
+
+####  Rainwedell  
+##### 4866#       发表于 2025-12-13 10:26
+
+队友怎么这么坏啊，这么多人坑我鸽鸽<img src="https://static.stage1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  pointer243  
+##### 4867#       发表于 2025-12-13 11:28
+
+看来mo***y这个id还是有毒啊,一到major就自动虾化了
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  朔方原的星  
+##### 4868#         楼主| 发表于 2025-12-14 01:48
+
+绿龙完了，超长加时被翻输了太伤士气了
+本来图一后面都打得一团浆糊了，哲伟什么的图一都顶不住图二更顶不住压力了，小将都很难顶住这个压力
+shiro还拉稀，沙二要被打出屎来
+小蜜蜂不会又要夺冠了吧，不爱看这集啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 4869#         楼主| 发表于 2025-12-14 01:59
+
+donk红温了，shiro拉稀，哲伟尿了一裤裆，Chopper猛送，特尼尔倒是当人
+
+这图二还用打吗<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哀兵必胜？
+
+
+*****
+
+####  敏感词好多  
+##### 4870#       发表于 2025-12-14 02:17
+
+什么情况，紫薇又睡着了？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 4871#         楼主| 发表于 2025-12-14 02:21
+
+我超，哀兵必胜？<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 4872#         楼主| 发表于 2025-12-14 02:47
+
+再见了👋🏻驴小弟
+
+
+*****
+
+####  KevinGraham  
+##### 4873#       发表于 2025-12-14 02:58
+
+zywoo其实状态还是一般，但第一把驴被打红温了，第二把完全预料之中了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  spEric  
+##### 4874#       发表于 2025-12-14 03:13
+
+看到图二zywoo醒了的时候就知道绿龙没得守了
+
+过中门把掉又伤道具又伤信息
+
+
+*****
+
+####  Algie  
+##### 4875#       发表于 2025-12-14 03:25
+
+看吐血的一集
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 4876#       发表于 2025-12-14 03:51
+
+马西西一场Lifegame除了造就五个心碎之人之外又让场外观众多吃了一年的💩
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 4877#       发表于 2025-12-14 08:31
+
+终极一战要来了，顶一下
+
+
+*****
+
+####  77BBC  
+##### 4878#       发表于 2025-12-14 09:19
+
+@art:history，history，你2025年11月27日1点38分拆包为什么不封烟？
+@snappi:history，history，你2025年11月27日1点38分拆包为什么不封烟？
+@xantares:history，history，你2025年11月27日1点38分拆包为什么不封烟？
+@maka:history，history，你2025年11月27日1点38分拆包为什么不封烟？
+@hallzerk:history，history，你2025年11月27日1点38分拆包为什么不封烟？
+@torzi∶history，history，你2025年11月27日1点38分拆包为什么不封烟？
+@alekaib:history，你2025年11月27日1点38分拆包为什么不封烟？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  heseran  
+##### 4879#       发表于 2025-12-14 09:27
+
+想不出fazeBO5怎么赢小蜜蜂，只能提前恭喜小蜜蜂了
+
+
+*****
+
+####  zzy516232108  
+##### 4880#       发表于 2025-12-14 11:38
+
+FAZE太强了
+
+但是不知道怎么赢小蜜蜂
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 4881#       发表于 2025-12-14 12:54
+
+我想开了，甚至提前原谅了FAZE。如果现在坐在FAZE更衣室的是我，在巨大的轮回感与压迫感面前，我想我早就尿漫布达佩斯了，我会哭着说把季军的奖金给我就好了，我会回家对着妹子摇尾乞怜，我要回家然后征战艾泽拉斯不告诉别人我曾经是个职业选手。我本人一直以来都是个心理上的懦夫，我不敢去想不敢去面对，不敢去看血腥的电影。去年到年底我才重新看CS，我甚至不知道Falcons是哪个队。啊，这一切都像上刑一样痛苦！但我又想，我是否太过于把自己的胜负心与荣誉心寄托于别人的成功与失败了，我总想着让别人来替我去赢替我去风光无限。哎，我不该这样的，我应该更多的去关注自己怎么处理好自己的生活与朋友，要把自己去变得更强。FAZE输了之后，我想我也就不再会去关注职业圈风风雨雨了吧，不向以往对着职业选手风流韵事如数家珍。我不能控制职业选手们想的是无上荣誉还是不背锅还是奖金背后的为所欲为还是体面的退役开直播爱国火箭到终老，但我会开好我的每一个bkb，我要赢就自己赢。我要打就自己打。我会试着去接受血腥的电影，因为那是残酷世界的缩影。啊，我想起来了，我应该去好好跑一次长跑，每次跑到第二圈就不停暗示自己膝盖会有磨损的，我想我应该去跑一次真正的长跑，现在就出发。—写在FAZE受难前一天
+
+
+*****
+
+####  朔方原的星  
+##### 4882#         楼主| 发表于 2025-12-15 01:19
+
+监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭
+
+
+*****
+
+####  宝儿  
+##### 4883#       发表于 2025-12-15 01:39
+
+监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭
+
+
+*****
+
+####  Mikumiku831  
+##### 4884#       发表于 2025-12-15 01:48
+
+监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭监哥杀😭
+
+*****
+
+####  kyogngn  
+##### 4885#       发表于 2025-12-15 01:50
+
+大表猪还有油啊
+
+[论坛助手,iPhone](https://stage1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  朔方原的星  
+##### 4886#         楼主| 发表于 2025-12-15 01:51
+
+小蜜蜂打得一盘散沙，看apex中间休息能不能治好脑子了
+
+apex别吃药zywoo别醒apex别吃药zywoo别醒<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  朔方原的星  
+##### 4887#         楼主| 发表于 2025-12-15 02:26
+
+坏了坏了坏了坏了坏了坏了坏了坏了
+
+
+*****
+
+####  Yugao  
+##### 4888#       发表于 2025-12-15 03:13
+
+今天会是强监吗
+
+
+*****
+
+####  11116等  
+##### 4889#       发表于 2025-12-15 06:04
+
+明年干回来
+
+—— 来自 OPPO PKB110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 4890#       发表于 2025-12-15 06:52
+
+比上海Major好多了，去年五个人打完瘫椅子里真的不敢回去看，今年至少精气神好不少
+而且小蜜蜂整个Major就丢了两张图吧，还都是痱子啃的
+
+
+*****
+
+####  恶搞之王  
+##### 4891#       发表于 2025-12-15 07:14
+
+最后给老头都打笑了，这是真没招了
+
+这样输总比上海那么近却又那么远好多了
+
+
+*****
+
+####  icecry  
+##### 4892#       发表于 2025-12-15 07:40
+
+小蜜蜂这下真王朝了
+
+
+*****
+
+####  太阳骑士GAOYAN  
+##### 4893#       发表于 2025-12-15 07:58
+
+最后的打笑了，开始尊严一战免得零封
+
+
+*****
+
+####  Yugao  
+##### 4894#       发表于 2025-12-15 08:39
+
+一直有人不同意的队还是太恐怖了
+
+
+*****
+
+####  nekomimimisuzu  
+##### 4895#       发表于 2025-12-15 09:22
+
+还是蜜蜂这队太超模了，所以不明白为什么有人一直吹猎鹰数值高是道具和赛训不好才出不了成绩，要我看猎鹰打成亚军季军专业户倒是很符合他们的实力。猎鹰本质也就是个TOP3大哥+中位TOP哥+TOP潜力新人，绿龙也是类似的配置但大哥更强一点。
+
+但蜜蜂那可是 TOP2大哥 + 高位TOP自由人 + 世一指，就连2个绿叶都有TOP实力。火仔又不是把把研发i18，经常爆起来就是世一突炎帝，妹子这决赛3张图杀第一都不需要薯薯有多少发挥，容错率比其他队高太多了，现环境独一档的队没话说。
+
+
+*****
+
+####  cnmyster1ous  
+##### 4896#       发表于 2025-12-15 09:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68874685&amp;ptid=1857369" target="_blank">nekomimimisuzu 发表于 2025-12-15 09:22</a>
+还是蜜蜂这队太超模了，所以不明白为什么有人一直吹猎鹰数值高是道具和赛训不好才出不了成绩，要我看猎鹰打 ...</blockquote>
+但问题是他们不是亚军季军专业户啊
+奥斯汀路边，布达佩斯8强，甚至stage3差点被带一堆一线边角料留守的表哥一脚踢死。
+猪油战舰游到了决赛，天生回家也混进了四强差一点游进决赛，怎么猎鹰就在8强被乱宰？紫菜这种本质菜b一年就打猎鹰游龙一次，总不能就正好是猎鹰运气差吧？每次都是他们运气差？
+
+
+*****
+
+####  nekomimimisuzu  
+##### 4897#       发表于 2025-12-15 09:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68874736&amp;ptid=1857369" target="_blank">cnmyster1ous 发表于 2025-12-15 09:31</a>
+
+但问题是他们不是亚军季军专业户啊
+
+奥斯汀路边，布达佩斯8强，甚至stage3差点被带一堆一线边角料留守的表 ...</blockquote>
+从京介加入后开始算已经拿了5个比赛的2-4名了，同期应该没有队比他们拿得多了。
+
+况且亚军季军专业户又不能保底每个比赛都不突发恶疾半路就虾了被一脚踢死<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ispep  
+##### 4898#       发表于 2025-12-15 09:46
+
+我一直觉得三代也该去追寻梦想了，不知道他自己怎么想的。不要和一代一样苦苦挣扎。二代看的透彻<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  曼彻斯特联  
+##### 4899#       发表于 2025-12-15 09:53
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68874846&amp;ptid=1857369" target="_blank">ispep 发表于 2025-12-15 09:46</a>
+
+我一直觉得三代也该去追寻梦想了，不知道他自己怎么想的。不要和一代一样苦苦挣扎。二代看的透彻 ...</blockquote>
+frozen这人重感情，老头退役前应该不会离队。
+
+*****
+
+####  icecry  
+##### 4900#       发表于 2025-12-15 09:56
+
+<blockquote>nekomimimisuzu 发表于 2025-12-15 09:22
+还是蜜蜂这队太超模了，所以不明白为什么有人一直吹猎鹰数值高是道具和赛训不好才出不了成绩，要我看猎鹰打 ...</blockquote>
+那也是人家自己练出来+化学反应好，去年一直喊着要踢的妹子，谁能想到能有如此表现
+
+
+*****
+
+####  nekomimimisuzu  
+##### 4901#       发表于 2025-12-15 10:01
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68874913&amp;ptid=1857369" target="_blank">icecry 发表于 2025-12-15 09:56</a>
+
+那也是人家自己练出来+化学反应好，去年一直喊着要踢的妹子，谁能想到能有如此表现 ...</blockquote>
+那去年没引入车主也没这么好成绩啊，大哥强阵容好化学反应还好，不管纸面硬实力还是什么的就是独一档。也就下半年车主和薯薯都瘫的那段时间会输点比赛，但也是常年前4。
+
+
+*****
+
+####  曼彻斯特联  
+##### 4902#       发表于 2025-12-15 10:07
+
+22年的G2早就告诉大家，重视体系的教练组加学院派指挥想兼容巨星打法是有难度的，李子和光头刚来G2就能进卡托决赛，过了半年反而越练越菜。换了swani和呼吸之后打造一个更宽松更能让尼孩表自由发挥的体系才有了23年的卡托科隆冠军。现在的小孩，包括未来的donk都可能会面临这个问题，但对于zywoo和ropz这种兼容性强的超级巨星/高位top来说，将个人发挥融入学院派体系并不是什么难事。
+
+
+*****
+
+####  icebarrier  
+##### 4903#       发表于 2025-12-15 10:10
+
+图4为啥这样，总不可能faze没准备吧
+
+*****
+
+####  longlivedick  
+##### 4904#       发表于 2025-12-15 10:14
+
+今日最难绷
+<img src="https://p.sda1.dev/29/29489b96115aab0590c66aa468d5f9b5/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/3e431771803f27b6f4b477cdb882fd02/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  nekomimimisuzu  
+##### 4905#       发表于 2025-12-15 10:18
+
+faze的OP本来就不怎么样，一直输多赢少，小将还是经验欠缺，CT方经常不知所措被道具覆盖一套带走
+
+
+*****
+
+####  Mimic  
+##### 4906#       发表于 2025-12-15 10:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68875004&amp;ptid=1857369" target="_blank">icebarrier 发表于 2025-12-15 10:10</a>
+
+图4为啥这样，总不可能faze没准备吧</blockquote>
+OP是真没时间准备，计划应该是nuke、inferno拿分，mirage决胜，奈何inf小区被爆CT拿分太少了
+
+
+*****
+
+####  icecry  
+##### 4907#       发表于 2025-12-15 10:54
+
+<blockquote>nekomimimisuzu 发表于 2025-12-15 10:01
+那去年没引入车主也没这么好成绩啊，大哥强阵容好化学反应还好，不管纸面硬实力还是什么的就是独一档。也 ...</blockquote>
+毕竟去年米人看不起妹子，也不满意位置，闹内讧
+
+*****
+
+####  zzy516232108  
+##### 4908#       发表于 2025-12-15 10:56
+
+我的青春是大表哥，后面忘了，总之下次干回来
+
+
+*****
+
+####  wjhzha  
+##### 4909#       发表于 2025-12-15 11:04
+
+我的青春是大表哥，心中永远的世一指。30台摄像机专拍，12次起立，4次major亚军，2次15秒转点，1次安特卫普，0次放弃。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  TiiTiiLL  
+##### 4910#       发表于 2025-12-15 11:45
+
+两边都是好人，但更多为妹仔感到高兴，从半决打绿龙的米垃圾救世，但决赛无敌表现，谁还记得当初“mezii is the problem”的时候<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  恶搞之王  
+##### 4911#       发表于 2025-12-15 22:55
+
+ 本帖最后由 恶搞之王 于 2025-12-15 22:57 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68875004&amp;ptid=1857369" target="_blank">icebarrier 发表于 2025-12-15 10:10</a>
+
+图4为啥这样，总不可能faze没准备吧</blockquote>
+faze一个月前开始备战major的时候大表哥和neo也没想到要打bo5啊<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且这op明显是蜜蜂给黑豹准备的，结果绿龙没撑到图3黑豹没爬上来，让faze撞上了
+
+
+*****
+
+####  爱护动物抓根宝  
+##### 4912#       发表于 2025-12-15 23:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68875004&amp;ptid=1857369" target="_blank">icebarrier 发表于 2025-12-15 10:10</a>
+图4为啥这样，总不可能faze没准备吧</blockquote>
+大表哥Stage1到3的采访基本都提的着眼2026，进Playoff了都只敢说准备粉碎某些队伍的Major梦想，估计是真没想到能冲进决赛，纯以赛代练了属于<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+而且Faze今年的赛训基本都是大表哥加Neo两个人准备，真的太捉襟见肘了，不过9月份总部总算给Faze批了明年的预算，希望明年别这么窘迫了吧
+
