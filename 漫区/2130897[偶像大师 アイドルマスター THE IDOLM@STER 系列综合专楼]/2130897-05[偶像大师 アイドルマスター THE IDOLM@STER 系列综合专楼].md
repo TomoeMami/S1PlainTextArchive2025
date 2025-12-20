@@ -7006,3 +7006,571 @@ moiw三次抽选全落，学友，恐怖如斯<img src="https://static.stage1st.
 乌冬这大小不对吧，确定不是跟美奈子换头了</blockquote>
 这下真·没柰子了<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Unlight  
+##### 7209#         楼主| 发表于 2025-12-11 00:05
+
+本以为是苍之鸟还是睡美人，结果是大师片
+
+<img src="https://img.stage1st.com/forum/202512/11/000516b37c2jei94l4zr6e.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5152.PNG</strong> (781.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-11 00:05 上传
+
+<img src="https://img.stage1st.com/forum/202512/11/000516f8c9xvslw6v4y1ws.png" referrerpolicy="no-referrer">
+
+<strong>IMG_5153.PNG</strong> (729.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-11 00:05 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  KAFAKs  
+##### 7210#       发表于 2025-12-12 18:54
+
+朋友们，明天moiw都在哪看配信的啊<img src="https://static.stage1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  cnmyster1ous  
+##### 7211#       发表于 2025-12-12 20:01
+
+前夜祭的DJ event开始了 ytb官方频道上面有生放 务必严肃收看
+
+
+*****
+
+####  a1370303  
+##### 7212#       发表于 2025-12-13 14:53
+
+严肃上山<img src="https://static.stage1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/337c6e72e7dc48a7e84f381859c06269/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alicest  
+##### 7213#       发表于 2025-12-13 15:03
+
+第一次现地
+<img src="https://p.sda1.dev/29/af9dac5c96b5d7840d1ad318e7dcbef4/1000068208.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Alicest  
+##### 7214#       发表于 2025-12-13 16:19
+
+小资历造反了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  純田まな  
+##### 7215#       发表于 2025-12-13 17:36
+
+真唱薯ki了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  游蜓  
+##### 7216#       发表于 2025-12-13 18:26
+
+学这真就没乱入啊
+
+*****
+
+####  Vacuolar  
+##### 7217#       发表于 2025-12-13 18:29
+
+灰和百当年争太子也就图一乐，两边都分到了对面抢不走的东西。
+
+学这才叫真太子，东宫重地是你们这些人能来的吗。
+
+
+*****
+
+####  qqqwwwyyy  
+##### 7218#       发表于 2025-12-13 18:34
+
+6家合同有点像5+1了
+
+
+*****
+
+####  natlk  
+##### 7219#       发表于 2025-12-13 19:46
+
+薯ki王朝了
+
+
+*****
+
+####  北条早苗  
+##### 7220#       发表于 2025-12-13 20:40
+
+小资历这可不敢唱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  raimouse  
+##### 7221#       发表于 2025-12-13 21:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑到构成
+
+灰铁野种的
+
+真太子按道理应该是闪或者百才对吧
+
+现在只能说都是废太子了
+
+
+*****
+
+####  IPoke  
+##### 7222#       发表于 2025-12-13 23:14
+
+红白应援是好的，别的拉完了
+虽然传统是大的在d2，但这回这个d1也太拉了，明明一个票价
+最大印象是管那个歌居然那么全场多人会打
+
+
+*****
+
+####  白水潭的饿鬼  
+##### 7223#       发表于 2025-12-13 23:36
+
+今天学一个里御三家都没上
+
+我已经期待明天的饭团滚滚了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1910, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  北条早苗  
+##### 7224#       发表于 2025-12-13 20:40
+
+小资历这可不敢唱<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  raimouse  
+##### 7225#       发表于 2025-12-13 21:44
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑到构成
+
+灰铁野种的
+
+真太子按道理应该是闪或者百才对吧
+
+现在只能说都是废太子了
+
+*****
+
+####  IPoke  
+##### 7226#       发表于 2025-12-13 23:14
+
+红白应援是好的，别的拉完了
+虽然传统是大的在d2，但这回这个d1也太拉了，明明一个票价
+最大印象是管那个歌居然那么全场多人会打
+
+*****
+
+####  白水潭的饿鬼  
+##### 7227#       发表于 2025-12-13 23:36
+
+今天学一个里御三家都没上
+
+我已经期待明天的饭团滚滚了<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1910, Android 12, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  RedSpecial  
+##### 7228#       发表于 2025-12-14 08:22
+
+<blockquote>IPoke 发表于 2025-12-13 23:14
+红白应援是好的，别的拉完了
+
+虽然传统是大的在d2，但这回这个d1也太拉了，明明一个票价
+
+最大印象是管那个歌 ...</blockquote>
+管人歌前夜祭教了，她们账号还有官方教学
+
+
+*****
+
+####  王俊凯  
+##### 7229#       发表于 2025-12-14 16:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">我永远喜欢s.e.m
+
+
+*****
+
+####  Vacuolar  
+##### 7230#       发表于 2025-12-14 17:47
+
+真白和雪代同台，大长腿爱好者最喜欢的一集
+
+
+*****
+
+####  Unlight  
+##### 7231#         楼主| 发表于 2025-12-14 17:55
+
+ 本帖最后由 Unlight 于 2025-12-14 17:58 编辑 
+
+话说，今天登台的中之人里，年龄最小和最大的差了多少岁来着（
+
+昨天呢
+
+*****
+
+####  北条早苗  
+##### 7232#       发表于 2025-12-14 17:59
+
+961你崛起罢
+
+
+*****
+
+####  Vacuolar  
+##### 7233#       发表于 2025-12-14 18:04
+
+草，百百灰灰和好吧<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Vacuolar  
+##### 7234#       发表于 2025-12-14 18:09
+
+太子就是太子，怎么，你不服气
+
+
+*****
+
+####  Unlight  
+##### 7235#         楼主| 发表于 2025-12-14 18:58
+
+woc，居然有大的
+
+明年开合同MR？
+
+*****
+
+####  a1370303  
+##### 7236#       发表于 2025-12-14 19:00
+
+真太子，给学马跪了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Vacuolar  
+##### 7237#       发表于 2025-12-14 19:02
+
+花海家已经称帝了，你们还不知道吗
+
+
+*****
+
+####  qqqwwwyyy  
+##### 7238#       发表于 2025-12-14 19:05
+
+除去部分环节，day2还是爽到了
+
+
+*****
+
+####  冰风血羽  
+##### 7239#       发表于 2025-12-14 19:14
+
+<img src="https://p.sda1.dev/29/205e71854862f8996d4d2bdb20a143ef/image.jpg" referrerpolicy="no-referrer">
+
+🎉可以撑地了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  zqpm1235  
+##### 7240#       发表于 2025-12-14 19:20
+
+拉下妹妹可以理解，干得太明目张胆就让人反胃了
+
+
+*****
+
+####  raimouse  
+##### 7241#       发表于 2025-12-14 19:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68873021&amp;ptid=2130897" target="_blank">a1370303 发表于 2025-12-14 19:00</a>
+
+真太子，给学马跪了
+
+明构思最后大合唱拉着瞳瞳的手，我还以为二太子是闪。没想到太子只有学一个 ...</blockquote>
+世子之争,向来如此<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  yuuuuuuuu  
+##### 7242#       发表于 2025-12-14 20:45
+
+我还是觉得学的歌不给其他企划唱才是最难绷的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ヒトニナル  
+##### 7243#       发表于 2025-12-14 20:48
+
+我还等着越境仮装狂騒曲呢，结果真没有，挺失望的
+
+
+*****
+
+####  wpcc  
+##### 7244#       发表于 2025-12-14 21:14
+
+学回归三原色是对的啊我看
+
+*****
+
+####  wpcc  
+##### 7245#       发表于 2025-12-14 21:14
+
+闪已经是小高鸡窝了
+他的组合路线也没传承
+
+
+*****
+
+####  OBW  
+##### 7246#       发表于 2025-12-14 21:37
+
+也不是没给过机会给小高，动画和游戏都整的不咋样。好好当八贤王吧。
+
+*****
+
+####  raimouse  
+##### 7247#       发表于 2025-12-14 21:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68873380&amp;ptid=2130897" target="_blank">yuuuuuuuu 发表于 2025-12-14 20:45</a>
+
+我还是觉得学的歌不给其他企划唱才是最难绷的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  natlk  
+##### 7248#       发表于 2025-12-14 22:09
+
+唉 学真太子了
+
+
+*****
+
+####  天堂懵懂人  
+##### 7249#       发表于 2025-12-14 22:17
+
+感觉这次的妆好容易花
+
+23年我感觉整场看下来妆基本没花过，这次的看着感觉好油
+
+
+*****
+
+####  wfhtony  
+##### 7250#       发表于 2025-12-14 23:55
+
+[【シャニマス】MOIW2025記念 虹の行方 スペシャルMV](https://www.youtube.com/watch?v=WGrgo8-8XwY)
+
+B站：BV14HmSBMEZ8
+
+→ MV作者：[https://www.nicovideo.jp/user/26654203](https://www.nicovideo.jp/user/26654203)
+
+＊這週末在ASOBI的入口頁有放過這部MV的一小段內容。
+
+-----
+
+不過呢...
+<img src="https://tc9.wfhtony.space/i/2025/12/14/117t9r5-1.png" referrerpolicy="no-referrer">
+[這截出來的這段...](https://x.com/imassc_prism/status/2000174933981405278)小高你果然是確信犯。
+
+
+*****
+
+####  不会起名  
+##### 7251#       发表于 2025-12-15 00:19
+
+唉，现地……
+
+
+*****
+
+####  Vacuolar  
+##### 7252#       发表于 2025-12-15 02:58
+
+学不乱入有两种说法，1是据说新歌版权没谈好，只能合唱谈好的歌，学要谈的作曲并不那么交流顺畅。2当然就是别偷热度。
+
+
+*****
+
+####  冰风血羽  
+##### 7253#       发表于 2025-12-15 03:35
+
+闪这MV，边看边哭
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  Anatoly  
+##### 7254#       发表于 2025-12-15 09:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68874245&amp;ptid=2130897" target="_blank">Vacuolar 发表于 2025-12-15 02:58</a>
+
+学不乱入有两种说法，1是据说新歌版权没谈好，只能合唱谈好的歌，学要谈的作曲并不那么交流顺畅。2当然就是 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">肯定别偷热度居多吧，熟人不少，厂牌也是自己家的，就算新作曲的话不说别的giga就起码属于比较好谈的吧
+
+
+*****
+
+####  zqpm1235  
+##### 7255#       发表于 2025-12-15 09:30
+
+别逗，万南自己家的版权都搞不定还开什么live，捧学捧得活太糙了而已
+
+
+*****
+
+####  raimouse  
+##### 7256#       发表于 2025-12-15 11:07
+
+别家别来蹭才是真的，版权这个纯逗逗凯子
+
+
+*****
+
+####  hashire.owl  
+##### 7257#       发表于 2025-12-15 22:14
+
+学马是大趋势，但是交接是做的有点不厚道。团体还是太庞大了。以后可以缩小到两个，三个品牌之间搞。
+
+day2アリーナ中央前4排，这辈子第一次这么靠前。
+
+炎柱演出喷一次就是一股热浪洗脸，声优靠的更近，
+
+对妆也有一定影响吧。最后谢场坐我前面的一长的高的哥们毛巾一举收到了ファンサ，说不羡慕是假的…
+
+下次一定。
+
+“10年，20年，100年不管什么样的形式都希望im@s存续下去。“就算是台本，我确实吃这套。一把年纪了听着这些歌还能一把鼻涕一把泪。
+
+MRlive予約了，请中。
+
+
+*****
+
+####  萩原组土狼p  
+##### 7258#       发表于 2025-12-16 22:56
+
+现地两天有些歌还行，总体评价没有男人这场live就是灾难，学马唱的纯狗屎，
+
+总体评价的话，男人毫无疑问的夯中夯，两天夯，男人撑起了这场live的基底，没有男人这场live就是灾难
+
+百万和灰同病相怜，day1百万拉完了，day2前一半作为半个百万p已经在收拾东西准备走人了，后一半可以说人上人。灰和百万一样，灰第一天是npc，好歌全给别人唱了，自己没啥东西，day2全程人上人
+
+sc第一天npc，第二天的sc把迷光单拎出来，迷光算夯，没有迷光的sc是拉完了
+
+学马两天拉完了，一坨屎，歌唱的难听不说还硬捧，两天重复唱初和cm，第二天唱cm我直接坐下和水当休息了
+
+本家我总体评价是拉，想听的歌全没有，基本全程打酱油，强行政治任务要接班
+
+和一群北京朋友从day1看完就在居酒屋开骂，骂完day1，骂day2，骂完day2第三天坐飞机回北京下飞机找了个萨莉亚和在北京留守看观影会直播的朋友一起骂，然后下午还在骂，然后周五准备一起开off会继续骂
+
+
+*****
+
+####  zqpm1235  
+##### 7259#       发表于 2025-12-15 09:30
+
+别逗，万南自己家的版权都搞不定还开什么live，捧学捧得活太糙了而已
+
+*****
+
+####  raimouse  
+##### 7260#       发表于 2025-12-15 11:07
+
+别家别来蹭才是真的，版权这个纯逗逗凯子
+
+*****
+
+####  hashire.owl  
+##### 7261#       发表于 2025-12-15 22:14
+
+学马是大趋势，但是交接是做的有点不厚道。团体还是太庞大了。以后可以缩小到两个，三个品牌之间搞。
+
+day2アリーナ中央前4排，这辈子第一次这么靠前。
+
+炎柱演出喷一次就是一股热浪洗脸，声优靠的更近，
+
+对妆也有一定影响吧。最后谢场坐我前面的一长的高的哥们毛巾一举收到了ファンサ，说不羡慕是假的…
+
+下次一定。
+
+“10年，20年，100年不管什么样的形式都希望im@s存续下去。“就算是台本，我确实吃这套。一把年纪了听着这些歌还能一把鼻涕一把泪。
+
+MRlive予約了，请中。
+
+*****
+
+####  萩原组土狼p  
+##### 7262#       发表于 2025-12-16 22:56
+
+现地两天有些歌还行，总体评价没有男人这场live就是灾难，学马唱的纯狗屎，
+
+总体评价的话，男人毫无疑问的夯中夯，两天夯，男人撑起了这场live的基底，没有男人这场live就是灾难
+
+百万和灰同病相怜，day1百万拉完了，day2前一半作为半个百万p已经在收拾东西准备走人了，后一半可以说人上人。灰和百万一样，灰第一天是npc，好歌全给别人唱了，自己没啥东西，day2全程人上人
+
+sc第一天npc，第二天的sc把迷光单拎出来，迷光算夯，没有迷光的sc是拉完了
+
+学马两天拉完了，一坨屎，歌唱的难听不说还硬捧，两天重复唱初和cm，第二天唱cm我直接坐下和水当休息了
+
+本家我总体评价是拉，想听的歌全没有，基本全程打酱油，强行政治任务要接班
+
+和一群北京朋友从day1看完就在居酒屋开骂，骂完day1，骂day2，骂完day2第三天坐飞机回北京下飞机找了个萨莉亚和在北京留守看观影会直播的朋友一起骂，然后下午还在骂，然后周五准备一起开off会继续骂
+
+*****
+
+####  a1370303  
+##### 7263#       发表于 2025-12-17 19:49
+
+里御三家的设定和初设变化真大啊
+<img src="https://p.sda1.dev/29/dffcf9899b95809f5052bfc6d271205e/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/78f815bf48a536cf629ea383e09bb999/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/c2a893f62a6e0f8889e9222d95f6e42f/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/67812442beef55cd914f3012bdea8018/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/cc3508736ca42a7047f9f660d6af0a9d/image.jpg" referrerpolicy="no-referrer">
+
