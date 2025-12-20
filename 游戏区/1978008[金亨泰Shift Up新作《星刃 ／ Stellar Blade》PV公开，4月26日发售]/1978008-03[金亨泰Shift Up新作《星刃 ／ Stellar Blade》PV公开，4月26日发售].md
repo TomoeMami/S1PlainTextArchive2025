@@ -15889,3 +15889,93 @@ CNS又不能进存档，商店MOD里买了就等于存档里也有了</blockquot
 
 —— 来自 nubia NX712J, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
 
+*****
+
+####  两个路人  
+##### 4311#       发表于 2025-12-16 02:02
+
+<blockquote>カタカナジゴク 发表于 2025-12-12 13:36
+我做了一个mod整合包，一共三四百套衣服，这个能发吗
+
+—— 来自 nubia NX712J, Android 14, 鹅球 v3.4.97- ...</blockquote>
+偷偷地发，别被二狗看见
+
+金X怎么又拿奖了啊
+
+https://v.daum.net/v/20251210163514353
+
+Shift Up CEO 金亨泰在 2025 年韩国内容大奖中荣获总统嘉奖
+
+Shift Up 宣布，公司 CEO 金亨泰在 10 日于首尔三成洞 COEX 举行的“2025 韩国内容大奖”颁奖典礼上，因其对游戏产业发展的贡献而荣获总统嘉奖。
+
+“韩国内容大奖”是韩国最负盛名的内容颁奖典礼，由韩国文化体育观光部主办，韩国文化产业振兴院承办，旨在表彰为内容产业发展做出贡献的公司和个人。
+
+CEO Kim表示：“这份总统嘉奖要感谢那些相信和支持Shift Up的开发者和粉丝们。”他还补充道：“我们将继续尽最大努力，进一步提升韩国游戏在全球舞台上的竞争力。”
+
+
+*****
+
+####  kaion111  
+##### 4312#       发表于 2025-12-16 08:34
+
+玩到沙漠了，这没互动地图根本没法做收集吧
+
+
+*****
+
+####  damenda  
+##### 4313#       发表于 2025-12-16 08:47
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68863857&amp;ptid=1978008" target="_blank">カタカナジゴク 发表于 2025-12-12 13:36</a>
+我做了一个mod整合包，一共三四百套衣服，这个能发吗
+
+—— 来自 nubia NX712J, Android 14, 鹅球 v3.4.97- ...</blockquote>
+大佬私我<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">想看**
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  czddxy  
+##### 4314#       发表于 2025-12-16 09:11
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68863857&amp;ptid=1978008" target="_blank">カタカナジゴク 发表于 2025-12-12 13:36</a>
+
+我做了一个mod整合包，一共三四百套衣服，这个能发吗
+
+—— 来自 nubia NX712J, Android 14, 鹅球 v3.4.97- ...</blockquote>
+偷偷发，造福一下坛友
+
+
+*****
+
+####  カタカナジゴク  
+##### 4315#       发表于 2025-12-16 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68852230&amp;ptid=1978008" target="_blank">牙狼GARO 发表于 2025-12-10 15:21</a>
+每隔xx秒随机换衣服是好mod啊，我去n网看看</blockquote>
+它这个mod还不支持cns，现在大部分mod都改成cns了<img src="https://static.stage1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+—— 来自 nubia NX712J, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.4.97-alpha
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 4316#       发表于 2025-12-17 18:09
+
+ds4一个摇杆飘了一个摇杆帽烂了，想换手柄了买了ds5。
+
+剑星对手柄特性支持的比较好，之前又清支线坑了没打完。
+
+看到过吹ds5振动说剑星里面下雨都能感觉到，刚到手试了一下觉得有点意思但没必要（
+
+一小时之后的我：怎么跑步破风之后也有振动，好爽。
+
+其实之前用ds4就觉得扬声器会响挺惊喜的，难得见到这种适配。
+
+ds5跑起来之后的大跳小跳落地都有振动，ds4就只有大跳落地会振一下。
+
+还有自适应扳机，体验确实更细腻了。<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
