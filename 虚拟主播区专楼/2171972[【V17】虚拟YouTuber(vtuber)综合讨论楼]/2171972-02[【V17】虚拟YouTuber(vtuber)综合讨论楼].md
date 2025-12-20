@@ -2014,3 +2014,375 @@ msm频道是会员没断过，直播没看过的状态。
 
 被发现是郡道后直接变逆风也是牛逼
 
+*****
+
+####  姬茧墨  
+##### 1668#       发表于 2025-12-16 17:10
+
+复活，，，
+
+*****
+
+####  マドマコ  
+##### 1669#       发表于 2025-12-16 17:12
+
+你虹和三角大姐牛逼好吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 1670#       发表于 2025-12-16 17:13
+
+只能说你虹就是个随便的人<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+现在压力来到了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Harunoharu  
+##### 1671#       发表于 2025-12-16 17:15
+
+你虹果然还是那个自由的会社
+
+
+*****
+
+####  艾特娜  
+##### 1672#       发表于 2025-12-16 17:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68826516&amp;ptid=2171972" target="_blank">艾特娜 发表于 2025-12-4 23:52</a>
+
+急什么，小夜T台宣布回归之后隔了8个月才正式复播呢</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">赶在圣诞节之前了，不错
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1||
+
+查看全部评分
+
+*****
+
+####  cckuku  
+##### 1673#       发表于 2025-12-16 17:26
+
+我还以为要留在圣诞节呢<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1||
+
+查看全部评分
+
+*****
+
+####  alcoholic1000  
+##### 1674#       发表于 2025-12-16 17:29
+
+好幸福<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">像雪一样降临
+
+*****
+
+####  Ferrari  
+##### 1675#       发表于 2025-12-16 17:29
+
+彩虹说，我这次的作业，你杏敢不敢抄<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Mika-S  
+##### 1676#       发表于 2025-12-16 17:31
+
+今夕是何年<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|好年|
+
+查看全部评分
+
+*****
+
+####  zhangruiy  
+##### 1677#       发表于 2025-12-16 17:32
+
+真正的温暖大家庭<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+虚假的温暖大家庭<img src="https://static.stage1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|就要这个でびるる|
+
+查看全部评分
+
+*****
+
+####  ヒトニナル  
+##### 1678#       发表于 2025-12-16 17:33
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">震撼
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|好震|
+
+查看全部评分
+
+*****
+
+####  Harunoharu  
+##### 1679#       发表于 2025-12-16 17:33
+
+顺着时间线刷下来刚好看到谷子贩卖通知，拖这么久不会去搞指偶设计去了吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|好行动力|
+
+查看全部评分
+
+*****
+
+####  aisakahammer  
+##### 1680#       发表于 2025-12-16 17:34
+
+2026年充满期待
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|好2026|
+
+查看全部评分
+
+
+*****
+
+####  alcoholic1000  
+##### 1681#       发表于 2025-12-16 17:39
+
+宅宅疑神疑鬼半个月，一看周边都端上来了<img src="https://static.stage1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Suny08  
+##### 1682#       发表于 2025-12-16 17:53
+
+这次应该是msm自己找的虹谈的回归，这次能成功的话那是不是你虹可以统一联系一下离职员工了解一下回归意愿了，那些混的不好不好意思回来的都会有想法了
+
+*****
+
+####  zackAlove  
+##### 1683#       发表于 2025-12-16 17:54
+
+不能忘记的人，真要归来了啊，活久见
+
+*****
+
+####  cckuku  
+##### 1684#       发表于 2025-12-16 17:57
+
+复活之后先去给ssk拜码头吧<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  北山玖公  
+##### 1685#       发表于 2025-12-16 18:23
+
+我看彩虹才是温暖大家庭啊<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+把roa还给我<img src="https://static.stage1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wbzdwsmnmsl  
+##### 1686#       发表于 2025-12-16 18:32
+
+最美妙的时刻
+
+
+*****
+
+####  lqn870727  
+##### 1687#       发表于 2025-12-16 19:53
+
+可以跟ssk组个复活组，以后还能增加成员<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9110, Android 16上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+*****
+
+####  aritaatsu222  
+##### 1688#       发表于 2025-12-16 21:52
+
+感觉能回来形象也挺重要，优华小姐活动时也是比较敬业克己的没说过前司什么八卦，那种毕业后嘴上没个把的应该回不来吧
+
+
+*****
+
+####  poipanchao  
+##### 1689#       发表于 2025-12-16 22:04
+
+同等级的毕业生……gbr和黛灰？
+
+gbr倒是混的不好，不过依稀记得毕业那年说了不少；黛灰肯定没戏
+
+不管怎么说，露露回来真是太好了
+
+*****
+
+####  SuntoryNomu  
+##### 1690#       发表于 2025-12-16 22:04
+
+以后要开两份会员了么..
+
+
+*****
+
+####  fastary  
+##### 1691#       发表于 2025-12-16 22:24
+
+ 本帖最后由 fastary 于 2025-12-16 22:25 编辑 
+
+居然真能复活，也是见证历史了<img src="https://static.stage1st.com/image/smiley/face2017/196.png" referrerpolicy="no-referrer">
+
+虽然还没开播就补卖出道谷真是好急，不过对于粉丝来说倒正好
+
+真好啊……2025是痴情官人痴能得到回报的一年……唉，可惜ymen忌日补了句现在确定100%不会回归了<img src="https://static.stage1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+管人地缚灵能等到你虹惦记上死人钱给毕业v补大锅饭谷的奇迹吗<img src="https://static.stage1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Harunoharu  
+##### 1692#       发表于 2025-12-16 22:28
+
+gbr刚毕业那会没怎么提到前司吧 虽然近几年确实有和小红帽郡道联动 这两位还是挺恨你虹的
+
+她主要是自己选择成为现在这样的 当年活动被骚扰练舞还很累整个人燃尽了 现在虽然没什么人看但是也挺自在的 应该不会回来了
+
+
+*****
+
+####  Ketestrait  
+##### 1693#       发表于 2025-12-16 22:38
+
+皇女这发歌bestfriend+感言，lizelulu是真的（ry
+
+
+*****
+
+####  SuntoryNomu  
+##### 1694#       发表于 2025-12-17 00:38
+
+<img src="https://img.stage1st.com/forum/202512/17/003734j2828nzcr2u7u354.jpg" referrerpolicy="no-referrer">
+
+<strong>20251217_003653.jpg</strong> (210.8 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-17 00:37 上传
+
+[https://x.com/kiyu5733/status/2000921104479871378](https://x.com/kiyu5733/status/2000921104479871378)
+
+
+*****
+
+####  rzrbtk  
+##### 1695#       发表于 2025-12-17 09:21
+
+今年可以是复活年，明年可以是大复活年<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">，期待口了在fes上闪耀回归怒砍黑子做自信大女主
+
+
+*****
+
+####  千千千千鸟  
+##### 1696#       发表于 2025-12-17 11:42
+
+太好了，泪目了，铃原露露的频道我一直没有取关，真人出道的初期还看一看，总之是不如皮套吸引我的，而且涩图应该也会变多了吧，美大生的图都很色
+
+
+*****
+
+####  usodakedo  
+##### 1697#       发表于 2025-12-17 15:24
+
+回来了会加入五元他们的黑环小团体吗，作为优华时基本都是单人，正好这两天大空洞也加入深夜了，虽然感觉像当初隐城那样还有一堆没开发完毕
+
+
+*****
+
+####  poipanchao  
+##### 1698#       发表于 2025-12-17 22:44
+
+突然想起露露还欠大家一首ダブルラリアット……不知道还记得吗
+
+
+*****
+
+####  lhawp  
+##### 1699#       发表于 2025-12-18 00:22
+
+lulu回归后那能不能拉着lize再播一次ASMR啊，我什么都会做的<img src="https://static.stage1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SuntoryNomu  
+##### 1700#       发表于 2025-12-18 00:42
+
+<img src="https://img.stage1st.com/forum/202512/18/004136s8u8hdae71dwc08p.jpg" referrerpolicy="no-referrer">
+
+<strong>20251218_004055.jpg</strong> (505.42 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-18 00:41 上传
+
+[https://x.com/_LullabyGhost/status/2001243839856861332](https://x.com/_LullabyGhost/status/2001243839856861332)
+
