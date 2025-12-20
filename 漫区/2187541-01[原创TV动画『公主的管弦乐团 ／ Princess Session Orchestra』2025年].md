@@ -2673,3 +2673,158 @@ PV那会儿看到上松+金子，外加是边干架边唱歌就估计歌不会�
 
 到目前为止最关键的一集，好像是大沼心第一次亲自参与分镜？
 
+*****
+
+####  DARK_HGCG  
+##### 246#       发表于 2025-12-14 08:34
+
+追加变身虽然卡但是美爆了！
+
+
+*****
+
+####  堆雪若叶  
+##### 247#       发表于 2025-12-14 09:15
+
+姐妹组合变身和必杀确实帅啊，ed改了op应该也要改吧。白女王这就成光杆司令还光速吃瘪比好姐妹也丢人太多<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">赶紧把真boss端上来吧
+
+
+*****
+
+####  wwwDYYU  
+##### 248#       发表于 2025-12-14 11:36
+
+这集俩姐妹把战斗曲唱了蛮长，很爽啊，白女王你有歌吗？有的话给唱出来听听
+
+
+*****
+
+####  lydia5989  
+##### 249#       发表于 2025-12-14 18:28
+
+下一集，五个公主：白女王哦 ，我来到你老窝呢，你人呢，跟你说哦，没你好果汁吃，假发给你薅掉，屁股给你打开花
+
+
+*****
+
+####  leommoo  
+##### 250#       发表于 2025-12-15 00:06
+
+双人曲挺好听的，完整ed也不错
+
+
+*****
+
+####  cmyk1234  
+##### 251#       发表于 2025-12-16 06:40
+
+ 本帖最后由 cmyk1234 于 2025-12-16 06:43 编辑 
+
+WIXOSS TCG卡牌将在2026年月发售公主管弦乐卡牌
+https://www.takaratomy.co.jp/products/wixoss/product/wx26_cp1/
+
+卡面包括五公主，两女王，女装乐队，花骑士，爱丽丝比亚人（妖精？），群众演员女孩等。
+只有公主是分身卡（LRIG，即GIRL倒写）
+
+<img src="https://p.sda1.dev/29/5b1e2b652a1bff7db0ffdb101dc35fcb/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/29/895be0c44462be6699de3e5502e617ca/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/29/436db7ba08fd55dd2a3ec2870c61fc5d/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/29/fa6a14a4f31030d8826d9a131d6ede1c/image.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/29/6c61d95e45ea228f0e220f36a24380fe/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  粉儿alice  
+##### 252#       发表于 2025-12-16 09:47
+
+风花姐妹战斗曲小提琴味太重了
+一度怀疑hhw主唱去给m团唱歌
+
+
+*****
+
+####  kos_mos  
+##### 253#       发表于 2025-12-16 20:05
+
+那只兔子桑消失了，你们会伤心吗？
+
+视听者们↓ ​​​<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202512/16/200531w4cp162wiuci91pg.png" referrerpolicy="no-referrer">
+
+<strong>po51.png</strong> (302.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-16 20:05 上传
+
+<img src="https://img.stage1st.com/forum/202512/16/200531ymf234u4s4forwqm.png" referrerpolicy="no-referrer">
+
+<strong>po52.png</strong> (334.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-16 20:05 上传
+
+<img src="https://img.stage1st.com/forum/202512/16/200531wytcbtqe85az5a9q.png" referrerpolicy="no-referrer">
+
+<strong>po53.png</strong> (334.84 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-16 20:05 上传
+
+真顔www
+
+<img src="https://img.stage1st.com/forum/202512/16/200550l9zliy4schyiws4i.png" referrerpolicy="no-referrer">
+
+<strong>po54.png</strong> (335.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-16 20:05 上传
+
+<img src="https://img.stage1st.com/forum/202512/16/200550y3l3ojzs7ygqoghj.png" referrerpolicy="no-referrer">
+
+<strong>po55.png</strong> (344.97 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-16 20:05 上传
+
+
+*****
+
+####  wwwDYYU  
+##### 254#       发表于 2025-12-16 23:26
+
+<blockquote>kos_mos 发表于 2025-12-16 20:05
+那只兔子桑消失了，你们会伤心吗？
+
+视听者们↓ ​​​
+
+</blockquote>
+管弦配合n站弹幕挺好玩的，每次都会去那边看。记得之前9话纳比优要把小夏支走，结果找借口说你要是出事儿了水萌会把我，然后弹幕刷一堆做炸鸡来着
+
+
+*****
+
+####  水莲寺流歌  
+##### 255#       发表于 2025-12-17 01:47
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">姐妹俩这激光剑和必杀的40米大刀一看就很强力，白女王别下集就跪了
+
+
+*****
+
+####  糖尔  
+##### 256#       发表于 2025-12-17 13:37
+
+姐妹合体变身和合体技实在是做的太好看了 下集36集应该是解决白女王突入最终主线？
+很难想象这片这么稳的走完了3/4，剧情日常主线音乐都看的特别舒适<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
