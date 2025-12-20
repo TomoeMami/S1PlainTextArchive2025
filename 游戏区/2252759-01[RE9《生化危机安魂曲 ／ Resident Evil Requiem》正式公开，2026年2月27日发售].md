@@ -3575,3 +3575,1130 @@ Fhalcon Gaming Store
 
 今次特典是有LEON的內褲
 
+*****
+
+####  csolfans  
+##### 349#       发表于 2025-12-9 20:09
+
+<img src="https://p.sda1.dev/29/09737f55624a8cb5394f95cb5a7b73af/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.3.96-alpha
+
+
+*****
+
+####  bill910  
+##### 350#       发表于 2025-12-9 20:23
+
+<img src="https://img.stage1st.com/forum/202512/09/202319hvtzi09c2a2ihsh7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (139.67 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-9 20:23 上传
+
+*****
+
+####  ff2077  
+##### 351#       发表于 2025-12-9 20:26
+
+但丁这块
+
+—— 来自 Xiaomi 24122RKC7C, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  王元姬无惨  
+##### 352#       发表于 2025-12-9 20:34
+
+嘿 艾达 你跑来跑去的日子到此为止了 给我火箭筒
+
+
+*****
+
+####  Andariel  
+##### 353#       发表于 2025-12-9 20:57
+
+里昂虽老，但丁依旧
+
+*****
+
+####  星花  
+##### 354#       发表于 2025-12-9 21:00
+
+ 本帖最后由 星花 于 2025-12-9 21:01 编辑 
+
+估计还是单身。
+
+看封面，💊啊。
+
+
+*****
+
+####  simonroam  
+##### 355#       发表于 2025-12-9 21:02
+
+有点像乔尔
+
+*****
+
+####  星花  
+##### 356#       发表于 2025-12-9 21:06
+
+我来提前吃💩。为救女主被僵尸咬死。<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  八汰乌  
+##### 357#       发表于 2025-12-9 21:09
+
+这封面做的有些拉，还不如现在预购版的封面。因为我只用steam不清楚其他平台，我觉得生化最好看的封面是8和重置4
+
+
+*****
+
+####  当光停止  
+##### 358#       发表于 2025-12-9 21:20
+
+<img src="https://static.stage1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">李叔叔退休前真能追上暧昧老伴吗?这都不是绝不绝经的问题了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  黑猫软  
+##### 359#       发表于 2025-12-9 21:24
+
+有里昂是百分百的，之前还装模作样解释为什么里昂不是主角。好奇会不会有王阿姨。
+
+岁数不小了，能不能给个交代。
+
+*****
+
+####  zzf111  
+##### 360#       发表于 2025-12-9 21:25
+
+小伙也都熬成老头了
+
+2重制里艾达明显比李昂老相一些 快达到milf境界，这部给个和李昂的娃就行别再出现了<img src="https://static.stage1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Piano-Forest  
+##### 361#         楼主| 发表于 2025-12-9 21:28
+
+<img src="https://p.sda1.dev/29/7d3312a1cc85b9e9025adafda71b86b5/20251209_211449.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/535b98ee78217d2c9794700203aefd05/G7ubrJlbgAAPPmh.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 362#       发表于 2025-12-9 21:41
+
+这代时间线还是跟着现实时间走？这都老成啥样了
+
+*****
+
+####  星花  
+##### 363#       发表于 2025-12-9 21:43
+
+反正很快就会100块的，到时再说。
+
+
+*****
+
+####  灵魂收割机  
+##### 364#       发表于 2025-12-9 21:48
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849159&amp;ptid=2252759" target="_blank">阿卵真是牛逼 发表于 2025-12-9 21:41</a>
+
+这代时间线还是跟着现实时间走？这都老成啥样了</blockquote>
+按理说明年差不多49岁，这图看着像59了。
+
+
+*****
+
+####  smdzh2  
+##### 365#       发表于 2025-12-9 21:59
+
+这个造型
+
+<img src="https://img.stage1st.com/forum/202512/09/225900uclkx6dcjvqjjdjr.png" referrerpolicy="no-referrer">
+
+<strong>067 (2).png</strong> (413 Bytes, 下载次数: 0)
+
+下载附件
+
+2025-12-9 21:59 上传
+
+会被新反派用无限耐久高尔夫球棍爆头吗？
+
+
+*****
+
+####  Andariel  
+##### 366#       发表于 2025-12-9 22:15
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849184&amp;ptid=2252759" target="_blank">灵魂收割机 发表于 2025-12-9 21:48</a>
+按理说明年差不多49岁，这图看着像59了。</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白男显老
+而且这岁数还能有这么一头浓密的偏分就别要什么自行车了
+
+
+*****
+
+####  woshenc  
+##### 367#       发表于 2025-12-9 23:01
+
+头发再长点可以cos杰洛特了
+
+但是王阿姨估计青春永驻了
+
+
+*****
+
+####  Sevenzerofive  
+##### 368#       发表于 2025-12-9 23:06
+
+长得跟自己的小号但丁差不多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2454A, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  kos_mos  
+##### 369#       发表于 2025-12-9 23:44
+
+全身那张不一定是真的吧，和索尼泄露图看着完全两个人，衣服还是仿6代的。
+
+
+*****
+
+####  zzf111  
+##### 370#       发表于 2025-12-10 00:23
+
+现在ai想做一张以假乱真的图太容易了
+
+但是游戏官方主宣图肯定假不了
+
+*****
+
+####  Schwftyyyyy  
+##### 371#       发表于 2025-12-10 00:24
+
+没人觉得像麦子叔吗
+
+
+*****
+
+####  格林达姆  
+##### 372#       发表于 2025-12-10 00:40
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849117&amp;ptid=2252759" target="_blank">Piano-Forest 发表于 2025-12-9 21:28</a></blockquote>
+几年不见，丁叔这么老了
+
+
+*****
+
+####  eilot  
+##### 373#       发表于 2025-12-10 00:52
+
+IGN都有說
+[https://www.ign.com/articles/con ... -store-leak-reveals](https://www.ign.com/articles/confirmed-leon-s-kennedy-is-in-resident-evil-requiem-playstation-store-leak-reveals)
+
+就看其他人會否再交代
+
+
+*****
+
+####  a85982313  
+##### 374#       发表于 2025-12-10 01:01
+
+<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">三光这造型要换其他角色感觉就要吃便当了，但是三光嘛，实在想不出来卡婊敢弄死
+
+
+*****
+
+####  nage560  
+##### 375#       发表于 2025-12-10 01:34
+
+2026年的话刚好50了，但也不至于这么老吧，看看小李子50了没有怎么保养都比这个里昂看着年轻。
+
+
+*****
+
+####  kcalb  
+##### 376#       发表于 2025-12-10 02:06
+
+底模似乎还是重制版那位苦大仇深版
+
+
+*****
+
+####  godless2020  
+##### 377#       发表于 2025-12-10 07:36
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849747&amp;ptid=2252759" target="_blank">nage560 发表于 2025-12-10 01:34</a>
+
+2026年的话刚好50了，但也不至于这么老吧，看看小李子50了没有怎么保养都比这个里昂看着年轻。 ...</blockquote>
+小李子年年玩青春的奶，三光年年出任务，咋比<img src="https://static.stage1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  反方向的波  
+##### 378#       发表于 2025-12-10 08:17
+
+你三光跟妹妹们你侬我侬地就少了啦？<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  SEGA  
+##### 379#       发表于 2025-12-10 08:30
+
+虽然明知道应该有三光，但真放出来还是很开心。现在就看这次王阿姨的造型了。该有娃了，不然真的来不及了。
+
+
+*****
+
+####  nage560  
+##### 380#       发表于 2025-12-10 09:38
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849928&amp;ptid=2252759" target="_blank">godless2020 发表于 2025-12-10 07:36</a>
+
+小李子年年玩青春的奶，三光年年出任务，咋比</blockquote>
+里昂高新帅哥会缺妹子？私底下不知道换多少个了。看看这么多游戏和剧场版有多少和里昂玩暧昧的妹子你再说一次<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  astrayl  
+##### 381#       发表于 2025-12-10 12:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">希望卡表别整烂活儿
+
+
+*****
+
+####  血狂毘沙门  
+##### 382#       发表于 2025-12-10 12:23
+
+8的克里斯已经够烂活了 还能更烂吗<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  57042711  
+##### 383#       发表于 2025-12-10 14:03
+
+胡子刮了能年轻不少吧<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  鳄鱼亮爪  
+##### 384#       发表于 2025-12-10 15:42
+
+没人觉得造型有点失败吗，感觉像年轻人画了老人妆，有点假
+
+
+*****
+
+####  马甲20250922  
+##### 385#       发表于 2025-12-10 15:55
+
+<blockquote>nage560 发表于 2025-12-10 01:34
+2026年的话刚好50了，但也不至于这么老吧，看看小李子50了没有怎么保养都比这个里昂看着年轻。 ...</blockquote>
+隔壁弩哥也50岁了，完全没有那么老。
+
+
+*****
+
+####  Asukalangley33  
+##### 386#       发表于 2025-12-10 16:52
+
+怎么比奇迹2的乔尔还老<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+re的世界观直接20和60一个样也没啥啊
+
+—— 来自 Xiaomi 24031PN0DC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  水边井  
+##### 387#       发表于 2025-12-10 17:06
+
+<img src="https://img.stage1st.com/forum/202512/10/170544ux8hh27rijyo7ash.jpg" referrerpolicy="no-referrer">
+
+<strong>0608cbe87b0b3487b78cfdf6231d2eb1_354066693497cf3c697bf6e5300e5baafd36cebe.jpg</strong> (196.14 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-10 17:05 上传
+
+冷知识，桐生比里昂大9岁<img src="https://static.stage1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  葵  
+##### 388#       发表于 2025-12-10 18:35
+
+我现在总有种感觉，9代开发周期那么长，里面东西又藏来藏去的，之前说搞开放世界搞来搞去搞球不成，后面又推翻回去要致敬2代，最后出来难说可能搞得四不像拉坨大的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  hkguty  
+##### 389#       发表于 2025-12-12 09:59
+
+正式预告好像又调年轻了些，60岁变40岁了，官方看来有点纠结里昂这部的人设
+
+*****
+
+####  yangfanel  
+##### 390#       发表于 2025-12-12 10:01
+
+又帅了  好诶
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 391#       发表于 2025-12-12 10:04
+
+战斗能回归5、6吗？
+
+*****
+
+####  刘伯温不博闻  
+##### 392#       发表于 2025-12-12 10:07
+
+预告感觉变年轻了
+
+*****
+
+####  u2deack  
+##### 393#       发表于 2025-12-12 10:07
+
+别把体术给抠了就行，还有三个月卖了怎么还不出试玩
+
+
+*****
+
+####  kos_mos  
+##### 394#       发表于 2025-12-12 10:13
+
+我就说老里昂那张是假的吧
+
+
+*****
+
+####  Piano-Forest  
+##### 395#         楼主| 发表于 2025-12-12 10:18
+
+PV3：[https://youtu.be/-uBLiITJBEw](https://youtu.be/-uBLiITJBEw)
+
+
+*****
+
+####  nagitoY  
+##### 396#       发表于 2025-12-12 10:30
+
+希望是以主控里昂为主啊。之前试玩主控格雷莎，武器都没有只能和怪绕圈圈，不喜欢。
+
+*****
+
+####  粉有  
+##### 397#       发表于 2025-12-12 10:31
+
+还得是分头<img src="https://p.sda1.dev/29/6c3a87af28a126100ba0dff4904592ea/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 398#       发表于 2025-12-12 10:41
+
+听声音好像变回Matthew Mercer了
+
+
+*****
+
+####  梅斯之围  
+##### 399#       发表于 2025-12-12 11:16
+
+看到李三光出场没什么感觉。不过看到战斗演示突然来劲了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  粉有  
+##### 400#       发表于 2025-12-12 11:25
+
+<img src="https://p.sda1.dev/29/285f368601be3cf0a5ad5c982be86582/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  eilot  
+##### 401#       发表于 2025-12-12 11:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68861850&amp;ptid=2252759" target="_blank">nagitoY 发表于 2025-12-12 10:30</a>
+
+希望是以主控里昂为主啊。之前试玩主控格雷莎，武器都没有只能和怪绕圈圈，不喜欢。 ...</blockquote>
+格雷莎之前說她都有武器及有戰鬥能力，但她那場試玩版只是傳統的逃避回合，又沒武器只能繞圈
+
+今次PV也見到她有手槍都沒機會用
+
+就看她有沒體術，但如何看這位FBI應該也遠不如雪梨這位保護要人組的特工吧
+
+里昂的零距離爆頭射擊，有點像CG電影中他的招式之一
+
+*****
+
+####  eilot  
+##### 402#       发表于 2025-12-12 11:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68851350&amp;ptid=2252759" target="_blank">血狂毘沙门 发表于 2025-12-10 12:23</a>
+
+8的克里斯已经够烂活了 还能更烂吗</blockquote>
+官方還未交代8代說CHRIS準備帶隊質問(反攻?)歐洲BSAA
+
+16年後看似成功奪權(?)，
+
+但小女孩又是監視更有狙擊手隨時爆她的頭狀態，又是沒解釋
+
+只是她的語氣又好像是CHRIS的親兵來...
+
+9代應該會提BSAA現在是處於甚麼環境吧
+
+
+*****
+
+####  kamus  
+##### 403#       发表于 2025-12-12 12:22
+
+<blockquote>阿卵真是牛逼 发表于 2025-12-11 21:41
+听声音好像变回Matthew Mercer了</blockquote>
+是哪个？6的那个吗？重置2和4那个也很好啊，是不是觉得听着太年轻了
+
+
+*****
+
+####  jxzeroga0  
+##### 404#       发表于 2025-12-12 12:35
+
+战斗演示算是定心丸吧，至少不会变成7那种
+
+—— 来自 Xiaomi 2410DPN6CC, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  阿卵真是牛逼  
+##### 405#       发表于 2025-12-12 12:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68863216&amp;ptid=2252759" target="_blank">kamus 发表于 2025-12-12 12:22</a>
+是哪个？6的那个吗？重置2和4那个也很好啊，是不是觉得听着太年轻了</blockquote>
+从游戏内时间线上说，6之后的大叔分头都是Matthew Mercer配音，这代我听着也像。
+
+*****
+
+####  Alect  
+##### 406#       发表于 2025-12-12 12:46
+
+战斗漏一点Leon耍帅体术/封面大篇幅也说明不了啥  8的封面还是克里斯占半呢。几乎所有到现在的采访里导演中西都一直在强调专注恐怖和“格蕾丝”是主角这个概念。格蕾丝那种低主角性能和与之对应的流程设计应该还是占主流程。
+
+Leon这种就类似7/8一样的老带新模式可能性比较大。参考7/8的伊森和克里斯，7/8的伊森本篇里没有体术/武器低火力。7的DLC里控制克里斯是有专门的体术，8的克里斯控制部分也有体术和更强的火力配置。9的话相对多的一个问题就是毕竟9是按双视角开发的，而4/5/6那种性能强同时表现力比较花哨的体术不好在第一人称夏表现，如果9的Leon篇也能够自由切换视角，那么可能要么流程不是很长要么体术花样不会很多（7和8的Chris虽然有体术但是只有比较简单的几种直拳勾拳）
+
+
+*****
+
+####  windlikeman  
+##### 407#       发表于 2025-12-12 12:50
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">分头怎么眼神浑浊了 我感觉和克里斯一样整烂活概率上升了 
+
+
+*****
+
+####  eilot  
+##### 408#       发表于 2025-12-12 12:55
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68863474&amp;ptid=2252759" target="_blank">Alect 发表于 2025-12-12 12:46</a>
+
+战斗漏一点Leon耍帅体术/封面大篇幅也说明不了啥  8的封面还是克里斯占半呢。几乎所有到现在的采访里导演中 ...</blockquote>
+7和8本身是第一視點，太複雜的花巧體術做出來都看不到，而且視點跟著頭部轉來轉去也是一種受罪(除了這時會強制變成大特寫)，所以大多都是直拳回旋拳就容易處理得多，也刪了針對地型出現的特殊體術
+
+但今次LEON的體術，能到捉著頭再零距離射擊(應該是衍生技?)，還有腿技，花巧的體術應該能重現
+
+另外是看到電鋸在使用時居然有獨立的武器顯示狀態，看來不像是6代那種特殊體術(搶了對方身上武器再反擊)，
+
+能變成常規武器嗎?
+
+只是看到使用電鋸時，電鋸和手槍的武器狀態是不停轉來轉來
+
+
+*****
+
+####  shimotsuki14  
+##### 409#       发表于 2025-12-12 13:10
+
+原来2月就出啊
+
+—— 来自 OPPO PKJ110, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  Alect  
+##### 410#       发表于 2025-12-12 13:21
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68863564&amp;ptid=2252759" target="_blank">eilot 发表于 2025-12-12 12:55</a>
+
+7和8本身是第一視點，太複雜的花巧體術做出來都看不到，而且視點跟著頭部轉來轉去也是一種受罪(除了這時 ...</blockquote>
+是的，最新的预告片最后那点片段是Leon第三人称的回旋踢，这种在第一人称下不好表现。所以如果Leon只是短流程操控（不超过全流程的20%）且只能使用第三人称，这样考虑比较合理。
+
+如果要给Leon做两套视角的表现，加上格蕾丝本体应该是不会有体术的情况。这样的话两个角色的战斗逻辑和动画表现都应该是完全不一样的，会占用很多工期产能。虽然生化是Capcom的旗舰系列，但是总感觉Capcom不会有这么大方（毕竟8出个第三人称还要单独收钱）
+
+
+*****
+
+####  我不是夏承凛  
+##### 411#       发表于 2025-12-12 14:36
+
+卡普空已确认与保时捷达成合作，将在《生化危机：安魂曲》中引入保时捷Cayenne Turbo GT作为主角里昂·S·肯尼迪的专属座驾。
+
+<img src="https://p.sda1.dev/29/05150b88b878bbec66909a38acef9bf1/image.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  1096beam  
+##### 412#       发表于 2025-12-12 14:38
+
+猜猜车最后还在不在<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smdzh2  
+##### 413#       发表于 2025-12-12 14:45
+
+中分还是帅啊，一登场就给人安心的感觉
+
+
+*****
+
+####  NTの末裔  
+##### 414#       发表于 2025-12-12 14:55
+
+有克莱尔哦，各位
+
+*****
+
+####  Andariel  
+##### 415#       发表于 2025-12-12 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864293&amp;ptid=2252759" target="_blank">NTの末裔 发表于 2025-12-12 14:55</a>
+有克莱尔哦，各位</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真的吗，这次脸能不能捏的好看点
+
+*****
+
+####  NTの末裔  
+##### 416#       发表于 2025-12-12 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864301&amp;ptid=2252759" target="_blank">Andariel 发表于 2025-12-12 14:58</a>
+
+真的吗，这次脸能不能捏的好看点</blockquote>
+逐帧分析里面有克莱尔的语音台词
+
+
+*****
+
+####  Andariel  
+##### 417#       发表于 2025-12-12 15:26
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864309&amp;ptid=2252759" target="_blank">NTの末裔 发表于 2025-12-12 14:59</a>
+逐帧分析里面有克莱尔的语音台词https://www.bilibili.com/video/BV1vmmLBpEva/?spm_id_from=333.1007.to ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">草，这么细
+一开始我都认为导航那个女声是哈尼根
+
+
+*****
+
+####  我不是夏承凛  
+##### 418#       发表于 2025-12-12 15:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864309&amp;ptid=2252759" target="_blank">NTの末裔 发表于 2025-12-12 14:59</a>
+逐帧分析里面有克莱尔的语音台词https://www.bilibili.com/video/BV1vmmLBpEva/?spm_id_from=333.1007.to ...</blockquote>
+可能只是里昂的回忆吧？正好让他回忆当年2代的时候……
+
+
+*****
+
+####  Awanano  
+##### 419#       发表于 2025-12-12 16:08
+
+里昂都48了王阿姨是不是绝经了
+还是沿用之前的设定被注射了就不会老
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+*****
+
+####  偏執王  
+##### 420#       发表于 2025-12-12 16:27
+
+这重置版的脸 老了也一副嫩样 而且不知道为什么有种很“硬”的感觉
+
+
+*****
+
+####  雨翼free  
+##### 421#       发表于 2025-12-12 16:41
+
+好得是这帮老家伙，本来前两个pv看完根本不想买。里昂一出来走不动道了<img src="https://static.stage1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  这次是十块钱  
+##### 422#       发表于 2025-12-12 16:49
+
+ 本帖最后由 这次是十块钱 于 2025-12-12 16:51 编辑 
+
+让我们回忆回忆，前几年也有一部关注度极高3a大作，里面一个非常有名的的“非本作主角但高人气”的，长发的，强无敌的，年轻时候有很多传说的，本作灵魂人物的，有专属保时捷座驾的是：.....
+
+
+*****
+
+####  风景很好  
+##### 423#       发表于 2025-12-12 17:28
+
+所以PS4版到底有没有啊！
+
+
+*****
+
+####  arbilest  
+##### 424#       发表于 2025-12-12 17:43
+
+都2026年了还PS4<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿卵真是牛逼  
+##### 425#       发表于 2025-12-12 17:48
+
+什么载具落到分头手里的最终结局都是爆炸💥
+
+
+*****
+
+####  桥洞底下盖小被  
+##### 426#       发表于 2025-12-12 17:57
+
+要素和噱头都很多，剩下就是看体量有多大了<img src="https://static.stage1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  smileboom  
+##### 427#       发表于 2025-12-12 20:11
+
+我4re的王阿姨dlc都还没买来玩，什么时候打个折啊
+
+
+*****
+
+####  Andariel  
+##### 428#       发表于 2025-12-12 20:53
+
+<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今天发现re4被背刺了操，上次140多买的黄金版，这次已经99了
+
+去看了看re4貌似是每年一个新史低，上次正好是49年入国军
+
+
+*****
+
+####  JOJO42  
+##### 429#       发表于 2025-12-12 21:20
+
+找高清预告盯帧了一下，分头脖子左侧是有黑色菌群一样的东西？后面他看那几张感染照片的画面里，右下角照片里那下半张脸看着也像是他的屁股下巴。。。所以他也感染了什么病毒吧
+
+而且看预告末里把分头斧子从敌人头上抽出来的时候，敌人头部有明显的爆炸效果，是这把斧子有什么额外功能或者机制？
+
+
+*****
+
+####  粉有  
+##### 430#       发表于 2025-12-12 22:33
+
+<img src="https://p.sda1.dev/29/ce0b02b31cc4422f2cdec31b82c210f8/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  黑猫软  
+##### 431#       发表于 2025-12-12 22:43
+
+<blockquote>Alect 发表于 2025-12-12 13:21
+是的，最新的预告片最后那点片段是Leon第三人称的回旋踢，这种在第一人称下不好表现。所以如果Leon只是短 ...</blockquote>
+
+还有个可能，不管什么视角，用体术就强制切换成第三人称就行了，反正之前生化4vr就干过（）
+
+
+*****
+
+####  pointer243  
+##### 432#       发表于 2025-12-13 11:51
+
+可能是我的幻想,这作9很大可能跟村庄8一样,是给后面老作品重制练手铺路的。结合男女双主角,对自己生化改造的反派,会不会是给维罗尼卡做铺垫的?
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+*****
+
+####  pointer243  
+##### 433#       发表于 2025-12-13 11:52
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68865999&amp;ptid=2252759" target="_blank">smileboom 发表于 2025-12-12 20:11</a>
+我4re的王阿姨dlc都还没买来玩，什么时候打个折啊</blockquote>
+王阿姨dlc好像没单独降价过吧
+
+—— 来自 LGE LM-Q730, Android 10, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  隔壁老黄  
+##### 434#       发表于 2025-12-13 12:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68867730&amp;ptid=2252759" target="_blank">pointer243 发表于 2025-12-13 11:51</a>
+可能是我的幻想,这作9很大可能跟村庄8一样,是给后面老作品重制练手铺路的。结合男女双主角,对自己生化改造 ...</blockquote>
+想多了，明显是想把传统恐怖和突突突结合起来，一个主角主打恐怖逃生，一个主打爽快打枪
+
+7和8都有类似的尝试
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  Piano-Forest  
+##### 435#         楼主| 发表于 2025-12-13 14:29
+
+『バイオハザード レクイエム』はレオンの“『RE:4』風アクション”と、グレースの“ガチホラー”の融合で「今までのバイオにない満足感」に。ダブル主人公の狙いを開発者に訊く
+[https://automaton-media.com/arti ... ew-20251212-370945/](https://automaton-media.com/articles/interviewsjp/biohazard-requiem-interview-20251212-370945/)
+
+
+*****
+
+####  stair楼梯  
+##### 436#       发表于 2025-12-13 19:20
+
+之前那老头分头应该是ai了，看了官方图还是没那么老的，这二月就发售看来是没demo了？
+
+
+*****
+
+####  eilot  
+##### 437#       发表于 2025-12-13 23:53
+
+剛看報導說LEON操作時間有50%
+
+即是2人都是各自一半
+
+如果沒有DLC補完其他角色角度的話
+
+另外CLAIRE的語音，特典中有1998年報告，不排除是出自這裡
+
+
+*****
+
+####  Alect  
+##### 438#       发表于 2025-12-14 00:18
+
+总结一下这游戏从公布到现在我从各种采访和新闻里总结的我认为比较有意思的信息吧
+
+1：本作开发之初就考虑成了双主角设计，导演中西晃史自己将结安魂曲的构类比为《生化危机：启示录》（这也是他导演的作品）
+
+2：里昂和格蕾丝的戏份在游戏内将会是各占一半，制作团队自称里昂部分是提供“爽快的动作感” 而格蕾丝篇是极致的恐惧感。
+
+3：他们把格蕾丝部分的控制，谜题，游戏节奏类比为《生化危机2重制版》包括更多的解谜和逃生环节。而里昂篇是生化危机4（包含体术和大量的战斗）
+
+4：双主角都可以第一人称/第三人称切换，考虑到Demo的特定惊吓场景会切换成第一人称，过场剧情动画又是第三人称，可能在表现体术一些方面时也是强制保持某种固定视角。
+
+5：TGA预告里出现的病毒Elpis（希腊语中的希望）和格蕾丝母亲以及Leon都会牵扯上一些关系。
+
+6：游戏中的毛发技术与Capcom另一游戏Pragmata一致，这是开发团队目前最满意的部分。
+
+7：之前的一次采访中被问到安魂曲的整体体量时，熊泽正人曾经提到会和生化危机4重制版类似，目前看来双主角设定为此说法增添了一丝可能性。
+
+8：虽然近年来很多生化危机作品都推出过试玩Demo，但目前开发组正全力投产，暂时没有为安魂曲推出试玩DEMO的计划。
+
+9：浣熊市不会是游戏唯一的地点，同时也会有其他当年浣熊市有关联的角色出现。但克里斯在安魂曲发生期间正在世界的其他角落‘干活’所以不会有他出场
+
+10：《生化危机7》开发期间导演中西晃史就要求组员观看一些经典的低成本B级片来思考如何在有限的条件和空间下营造恐惧感。安魂曲中也保留了这一习惯，这次导演主要从《沉默的羔羊》和《X档案》中汲取灵感。
+
+11：制作者在处理2个主角的剧情时，希望达到的目标都是“新玩家能无压力的接触”而不会有理解问题。从生化危机7开始将数字序号藏在标题内的设计也是为了防止新玩家看见庞大的数字号产生望而却步的感觉。
+
+12：游戏会有数场Boss战，格蕾丝部分会类似生化危机7和生化危机2重制版的风格。此外，关于游戏内出现的追踪者类敌人，制作者承认会有某种以往作品中没有的，“一劳永逸”的解决方式。
+
+13：导演认为《生化危机：安魂曲》就是为了提供那种极致的“情绪过山车”式冲击：先用极致的恐怖与压抑部分让玩家紧绷（格蕾丝）再通过某些环节让玩家得以释放（里昂）
+
+14：PV里的兜帽男是新角色，而Demo中的怪物也不是Lisa
+
+15：游戏不全是逼仄狭窄的场景，会有一些探索度更高的区域。但导演仍然没有回答正篇部分会不会有某种载具存在。
+
+
+*****
+
+####  粉有  
+##### 439#       发表于 2025-12-15 12:41
+
+<img src="https://p.sda1.dev/29/8e5489c12a89837853c4dd9131a2c82a/image.jpg" referrerpolicy="no-referrer">
+有没有人知道出处<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  wdh1030  
+##### 440#       发表于 2025-12-15 13:36
+
+这民国女特务风的王阿姨是认真的吗？<img src="https://static.stage1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  JOJO42  
+##### 441#       发表于 2025-12-15 13:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68875953&amp;ptid=2252759" target="_blank">粉有 发表于 2025-12-15 12:41</a>
+
+有没有人知道出处
+
+—— 来自 鹅球 v3.5.99-alpha</blockquote>
+好像是推上制作的同人吧，这模型的渲染风格跟其他角色明显不是一个路子，也没打轮廓光，应该是拿re4模型改的
+
+
+*****
+
+####  woshenc  
+##### 442#       发表于 2025-12-15 14:01
+
+克里斯居然还在打黑工？
+
+王阿姨风韵犹存啊
+
+
+*****
+
+####  hkguty  
+##### 443#       发表于 2025-12-15 14:44
+
+re4的mod，推上发的人说了
+
+
+*****
+
+####  Leon-7  
+##### 444#       发表于 2025-12-15 14:58
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68870239&amp;ptid=2252759" target="_blank">Alect 发表于 2025-12-14 00:18</a>
+
+总结一下这游戏从公布到现在我从各种采访和新闻里总结的我认为比较有意思的信息吧
+
+1：本作开发之初就考虑 ...</blockquote>
+9：浣熊市不会是游戏唯一的地点，同时也会有其他当年浣熊市有关联的角色出现。但克里斯在安魂曲发生期间正在世界的其他角落‘干活’所以不会有他出场
+
+如果这句话翻译没有问题的话，我想说，大概率30周年上的人物都会出现（除了Chris）：艾达、吉尔、克莱尔。她们三个都和浣熊市有很大相关性 
+
+*****
+
+####  luffy0085  
+##### 445#       发表于 2025-12-15 15:03
+
+生化8的结尾留的是克里斯部分的悬念，就这么按下不表了？
+
+另外我不觉得这种所谓“过山车式”的游戏体验是什么好主意，会造成资源管理的节奏严重断档。
+
+
+*****
+
+####  哈罗  
+##### 446#       发表于 2025-12-15 15:20
+
+re8结尾猩猩说的是让飞机掉头，直接开去总部，按现在这时间线根本接不上，要么时间调回去说，要么背景交代一笔带过
+
+
+*****
+
+####  Andariel  
+##### 447#       发表于 2025-12-15 15:25
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">生化这几年正作和外传结尾都挖了多少坑了
+哪个有后续了
+启示录1结尾三面间谍，启示录2结尾女威斯克也都没有后续，仿佛做完了就不再存在的人物和故事线一样
+
+
+*****
+
+####  khxooo  
+##### 448#       发表于 2025-12-15 15:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68864207&amp;ptid=2252759" target="_blank">1096beam 发表于 2025-12-12 14:38</a>
+猜猜车最后还在不在</blockquote>
+肯定没了的<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  moonblackwh  
+##### 449#       发表于 2025-12-15 16:36
+
+王婆婆今年都51岁了，里大爷也49岁了
+
+生化这个年龄跟着现实时间线走的设定在开发游戏周期越来越长现在就很搞，本来是接棒未来的雪梨杰克现在都三四十了，还不如接着用老头老太太<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  鳄鱼亮爪  
+##### 450#       发表于 2025-12-16 14:32
+
+<img src="https://img.stage1st.com/forum/202512/16/143225efy88jj84rvp85pd.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>IMG_5929.jpeg</strong> (234.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-16 14:32 上传
+
+这个不错啊
+
+
+*****
+
+####  SEGA  
+##### 451#       发表于 2025-12-16 15:30
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68881668&amp;ptid=2252759" target="_blank">鳄鱼亮爪 发表于 2025-12-16 14:32</a>
+
+这个不错啊</blockquote>
+这个没有王阿姨的神秘感觉，并且太冷峻了，没有王阿姨的游刃有余。
+
+
+*****
+
+####  Alect  
+##### 452#       发表于 2025-12-16 15:46
+
+其实你们讨论的关于前作角色和剧情关联之类的，今年科隆那会还真有个媒体问过了，我补充一下。
+
+16：当被问及与前作《生化危机：村庄》有无直接或间接的关系，以及人物出场时，制作者认为《生化危机》正传的出场人物并不一定非得与前作产生关联。他拿了《生化危机6》中的杰克.穆勒作为例子：大家看到结局时都以为他会在接下来的作品大展拳脚，但实际上《生化危机7》选用了新的主角和场景。
+
+从我个人的角度来看生化剧情是有点“想到哪出到哪”的味的，因为生化这个时间线跟着现实世界线走的设定，生化6的时候本来是想写死克里斯让皮尔斯接班的，其他线也是有很明显的捧“毒二代”上场的倾向，4条线通关的彩蛋动画也都是杰克。结果最后考虑到主角人气太高又没敢把事做绝，RE6口碑不佳也让这系列不再转向动作COD化了，上面回答也是这几年我第一次从职位比较大的Capcom制作人那得来的回答，基本可以认为本来要捧的新一代应该是暂时搁置了。
+
+其实当时生化7刚开发的时候竹内润就和当时的导演中西晃史一起讨论过这事，说是要颁正系列转回到恐怖方面就不能用“老角色”，必须用没什么背景和技能的普通人主角。其中一个原因就是老主角经历太多，战斗技能过硬很难让玩家产生恐惧感。其次是不管你官方怎么在宣传期模糊用词，大家也知道这些人气主角最后出不了什么事，不利于制造悬念，不过RE9又在营造Leon遭遇史上最艰难挑战，结果很多人又开始猜被感染以及最后一代谢幕了。。总之在我看来就和RE8用个狼人克里斯当封面一样，烟雾弹的可能性大约99%吧。
+
+
+*****
+
+####  满月诗篇  
+##### 453#       发表于 2025-12-17 01:25
+
+王阿姨都过了55了吧
+延迟退休了也要退休啊
+
+
+*****
+
+####  哈扎马  
+##### 454#       发表于 2025-12-17 05:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68877126&amp;ptid=2252759" target="_blank">moonblackwh 发表于 2025-12-15 16:36</a>
+
+王婆婆今年都51岁了，里大爷也49岁了
+
+生化这个年龄跟着现实时间线走的设定在开发游戏周期越来越长现在就很 ...</blockquote>
+不喜欢冻龄是卡普空的公司偏好吗<img src="https://static.stage1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">生化还不是最夸张的，隔壁逆转剧情走入死胡同一大原因就是没有必要的角色年龄推进
+
+
+*****
+
+####  不见不散  
+##### 455#       发表于 2025-12-17 07:48
+
+王阿姨都绝经了吧还没和里昂修成正果<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ParadiseMartyr  
+##### 456#       发表于 2025-12-17 08:16
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定这部艾达王就抱着孩子给里昂打电话呢
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  黑夜守望者  
+##### 457#       发表于 2025-12-17 09:13
+
+ 本帖最后由 黑夜守望者 于 2025-12-17 09:15 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68877126&amp;ptid=2252759" target="_blank">moonblackwh 发表于 2025-12-15 16:36</a>
+王婆婆今年都51岁了，里大爷也49岁了
+
+生化这个年龄跟着现实时间线走的设定在开发游戏周期越来越长现在就很 ...</blockquote>
+分头48岁还出勤就算了，但是王阿姨51岁的老太婆还出任务就太地狱了，资本主义国家太剥削🐮🐎了不如还是回中国养老吧<img src="https://static.stage1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">而且这岁数还有人敢委托吗？卡表不打个和吉尔一样不老的补丁说不过去但是打了又真得当🐮🐎一辈子了
+
+
+*****
+
+####  herryk159  
+##### 458#       发表于 2025-12-17 11:27
+
+王阿姨这个民国风发型不太行吧<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+依稀记得7代里不是有什么蓝伞，什么bsaa黑化吗？后面有什么交代吗？
+
+
+*****
+
+####  plok201  
+##### 459#       发表于 2025-12-17 11:35
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68876581&amp;ptid=2252759" target="_blank">luffy0085 发表于 2025-12-15 15:03</a>
+
+生化8的结尾留的是克里斯部分的悬念，就这么按下不表了？
+
+另外我不觉得这种所谓“过山车式”的游戏体验是 ...</blockquote>
+生化开了个头没结尾的悬念可太多了，你要说真结束了也就威斯克，还弄得一团糟，类似史蒂夫啥情况没后续了，老克连带一堆坑全没了
+
+启示录系列全是坑，安布雷拉完蛋史到编年史才补了一点
+
