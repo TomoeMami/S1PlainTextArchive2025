@@ -1084,3 +1084,167 @@ PS5版测试面向北美、南美、欧洲、中东、非洲、印度、澳大�
 
 这个10月新版的测试看着还行. COD赶紧把DMZ复活吧. 就看大厂哪个第一个吃下搜打撤这个蓝海了.
 
+*****
+
+####  Piano-Forest  
+##### 100#         楼主| 发表于 2025-12-16 02:05
+
+26年3月发售
+[https://youtu.be/f**hROTv28](https://youtu.be/f**hROTv28)
+[https://www.bungie.net/7/en/News/Article/marathonvidoc](https://www.bungie.net/7/en/News/Article/marathonvidoc)
+
+
+*****
+
+####  herryk159  
+##### 101#       发表于 2025-12-16 11:05
+
+被这图整笑了
+
+<img src="https://img.stage1st.com/forum/202512/16/110428i28lhjh8y4zlrhhl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (138.56 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-16 11:04 上传
+
+
+*****
+
+####  泰坦失足  
+##### 102#       发表于 2025-12-16 11:12
+
+会有反作弊….的吧？
+
+[论坛助手,iPad](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
+
+*****
+
+####  zzy516232108  
+##### 103#       发表于 2025-12-16 15:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">姓名特工收费死了
+
+highguard是免费
+
+马拉松为什么是收费的，没明白
+
+
+*****
+
+####  星鸣2之马拉松  
+##### 104#       发表于 2025-12-16 16:34
+
+必和星鸣特攻一样成功
+
+
+*****
+
+####  Sopp  
+##### 105#       发表于 2025-12-16 16:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68880608&amp;ptid=2135998" target="_blank">泰坦失足 发表于 2025-12-16 11:12</a>
+
+会有反作弊….的吧？
+
+论坛助手,iPad</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">大概只有小蓝熊
+
+没什么卵用，看看命运熔炉就知道了
+
+
+*****
+
+####  葵  
+##### 106#       发表于 2025-12-16 17:06
+
+新的前瞻视频看着还行，至少打枪的爽感还是you de 4<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  FLZB  
+##### 107#       发表于 2025-12-16 21:34
+
+美术也没改，新pv当作无事发生<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  WGTCorp  
+##### 108#       发表于 2025-12-17 08:34
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68883923&amp;ptid=2135998" target="_blank">FLZB 发表于 2025-12-16 21:34</a>
+
+美术也没改，新pv当作无事发生</blockquote>
+美术问题应该已经和原设计师和解了
+
+<img src="https://img.stage1st.com/forum/202512/17/083424ng6hwh9fty111a1r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2025-12-17 08:34 上传
+
+
+*****
+
+####  wpcc  
+##### 109#       发表于 2025-12-17 08:43
+
+已经和解了 开服先赔一大笔
+
+
+*****
+
+####  FLZB  
+##### 110#       发表于 2025-12-17 15:57
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68885081&amp;ptid=2135998" target="_blank">WGTCorp 发表于 2025-12-17 08:34</a>
+
+美术问题应该已经和原设计师和解了</blockquote>
+草，还是给得太多了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  时空之旅  
+##### 111#       发表于 2025-12-17 16:18
+
+原作者美滋滋
+
+*****
+
+####  C.W.Nimitz  
+##### 112#       发表于 2025-12-17 16:23
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=67957471&amp;ptid=2135998" target="_blank">泰坦失足 发表于 2025-6-18 03:06</a>
+
+Fairgame+马拉松, 一起剑指2026. 必将歼灭NS2随着游戏机发售陆陆续续来的游戏, 任天堂已无可用之兵. ...</blockquote>
+然后被鹅场的《灰境行者》秒杀就搞笑了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+都不用上Arc Raider
+
+
+*****
+
+####  鹅大人  
+##### 113#       发表于 2025-12-17 17:53
+
+马拉松这个美术，高饱和大色块，反而人物相比起来有点素，搞pvp感觉会很瞎眼。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.3.96
+
+
+*****
+
+####  Emcylla  
+##### 114#       发表于 2025-12-17 22:22
+
+概念PV潮到出汁
+
+实机为啥这么土
+
