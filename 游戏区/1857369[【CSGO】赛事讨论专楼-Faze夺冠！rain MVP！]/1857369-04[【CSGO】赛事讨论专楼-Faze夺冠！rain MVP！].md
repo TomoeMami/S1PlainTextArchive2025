@@ -2387,3 +2387,10 @@ faze一个月前开始备战major的时候大表哥和neo也没想到要打bo5�
 大表哥Stage1到3的采访基本都提的着眼2026，进Playoff了都只敢说准备粉碎某些队伍的Major梦想，估计是真没想到能冲进决赛，纯以赛代练了属于<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 而且Faze今年的赛训基本都是大表哥加Neo两个人准备，真的太捉襟见肘了，不过9月份总部总算给Faze批了明年的预算，希望明年别这么窘迫了吧
 
+*****
+
+####  zpl123  
+##### 4913#       发表于 2025-12-19 00:12
+
+Spirit官宣-chopper-zweih，+magixx（指挥）+zont1x
+
