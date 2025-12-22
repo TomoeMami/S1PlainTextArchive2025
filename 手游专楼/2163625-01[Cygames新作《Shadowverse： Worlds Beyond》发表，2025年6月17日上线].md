@@ -8410,3 +8410,12 @@ szb2明显开服就不是kmr管吧
 
 <img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">次元歧点里面怎么感觉模式梦打增幅法10-0开，傻铺卡组面对一万个硬解真的是蛆，唯一的赢点撒旦还被移除了
 
+*****
+
+####  珀伽索斯座圣衣  
+##### 721#       发表于 2025-12-19 22:45
+
+离大谱，双选大赛就我选那副烂牌居然也能晋级b组第二轮，看来真就是全看运气
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
