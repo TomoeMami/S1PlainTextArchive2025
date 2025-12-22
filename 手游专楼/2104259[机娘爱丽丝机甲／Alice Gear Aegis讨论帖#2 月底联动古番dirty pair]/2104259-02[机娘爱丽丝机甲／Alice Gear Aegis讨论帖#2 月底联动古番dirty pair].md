@@ -3165,3 +3165,31 @@ nekomimiGOURAI
 
 —— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
 
+*****
+
+####  冰风血羽  
+##### 1780#       发表于 2025-12-17 21:04
+
+闪燕这个换色给我气笑了
+
+—— 来自 realme RMX3706, Android 13, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  astrayl  
+##### 1781#       发表于 2025-12-18 18:12
+
+这些机娘的换色武器不能换啊，是bug吗
+
+
+*****
+
+####  冰风血羽  
+##### 1782#       发表于 2025-12-19 13:17
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68894361&amp;ptid=2104259" target="_blank">astrayl 发表于 2025-12-18 18:12</a>
+
+这些机娘的换色武器不能换啊，是bug吗</blockquote>
+圣诞色应该是搭配送的圣诞武器玩的，这几个正经换色不是这样的
+
