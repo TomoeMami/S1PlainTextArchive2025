@@ -3823,3 +3823,94 @@ ego污血泣泪•应龙的“不许”可以锁血，要不设定黑兽辰为�
 
 这道中战真是纯恶心啊，一点设计都没有还又臭又长，第四章那个最终迷宫我坐着p了一个小时没到关底<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Jamaisvu  
+##### 1206#       发表于 2025-12-19 21:56
+
+第七赛季12.31开启，PV太艺术了，五指的设定真时髦啊！
+
+<img src="https://img.stage1st.com/forum/202512/19/215653ygsjsjfv1vs03rgs.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251219_214557.jpg</strong> (266.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-19 21:56 上传
+
+良秀的批发父母：
+
+<img src="https://img.stage1st.com/forum/202512/19/214657qq4p5rtgl9g5pffz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251219_214253.jpg</strong> (147.6 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-19 21:46 上传
+
+严苛的拇指母亲。
+
+（小金亲妈既视感）
+
+<img src="https://img.stage1st.com/forum/202512/19/214657rl1oae15a6guajt1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251219_214332.jpg</strong> (170.73 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-19 21:46 上传
+
+宠溺的中指父亲。
+
+（小金的理想亲人）
+
+<img src="https://img.stage1st.com/forum/202512/19/214658jbhig7qnv4e7i65q.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251219_214349.jpg</strong> (166.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-19 21:46 上传
+
+抽象的环指父亲。
+
+（对孩子的影响不可估量）
+
+<img src="https://img.stage1st.com/forum/202512/19/214658kuyywk3zarkz3r32.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251219_214530.jpg</strong> (160.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-19 21:46 上传
+
+神秘的小指母亲。
+
+（疑似良秀生物妈。手上那个长长的好像是慈禧同款指甲套，话说小指这帮人目前都算中国风吧...）
+
+<img src="https://img.stage1st.com/forum/202512/19/214658rvq7oka4iz39eq3y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251219_214544.jpg</strong> (130.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-19 21:46 上传
+
+燃烧的食指父亲。
+
+（看起来像某只流放郊区的黑刺猬，但之前解包爆料过，只是个缩水版的百般武艺黑话痨。良秀就是烧你当灵感拿到环指毕业证的嘛XD）
+
+
+*****
+
+####  龙宫李奥义  
+##### 1207#       发表于 2025-12-20 18:23
+
+小金还非常鸡贼的把食指的臂章等特征遮起来了，有意往那位身上引啊，可惜那次解包已经爆出来过真身了，不然我不敢想光看着PV得有多爆炸。
+
