@@ -4002,3 +4002,207 @@ https://store.steampowered.com/app/1961850/Toroban/
 主楼列的未发售作品的 Toroban 今天终于上线了，看 ...</blockquote>
 眼睛给我闪花了<img src="https://static.stage1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+*****
+
+####  otjuly  
+##### 281#       发表于 2025-12-10 06:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68811104&amp;ptid=2017380" target="_blank">铃森冬 发表于 2025-12-2 02:29</a>
+https://store.steampowered.com/app/1961850/Toroban/
+
+主楼列的未发售作品的 Toroban 今天终于上线了，看 ...</blockquote>
+唉，这游戏，打到ruin时感觉，“卧槽太吊了，每个小区域都有新机制，一个大区有九个小区”
+到了fall和snow，“怎么一下子只剩四五个小区域了……算了，也还行吧”
+desert，“这offset真要推吐了”
+最后cosmic本体还行，但是散在各区的隐藏也太充数了，一堆白给题最后加一个裹脚布<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+白色开关好像暂时打不开，应该会后续更新吧
+
+感觉底子很好，有点可惜了，而且预告片里有的机制好像没在游戏本体里出现
+
+
+*****
+
+####  铃森冬  
+##### 282#       发表于 2025-12-10 14:14
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68849866&amp;ptid=2017380" target="_blank">otjuly 发表于 2025-12-10 06:04</a>
+唉，这游戏，打到ruin时感觉，“卧槽太吊了，每个小区域都有新机制，一个大区有九个小区”
+到了fall和sno ...</blockquote>
+隐藏关感觉像废案，设计出来质量偏低没当成正关的关卡，不知道干嘛非得放进来不可
+
+没做完这点也确实很值得吐槽，就一定要把全通也打不开的门明晃晃放外面，吊了人胃口最后告诉你现在版本没这么回事多少有点气人，就应该先把白门换成墙等后续内容做完了再亮出来
+
+当然看这游戏 steam 页面做的可能作者在这些方面确实不太走心
+
+不过 ruin 大关的机制确实妙啊，我玩的时候一直感觉就是卧槽还能这样，太合理了，就凭这一点我就还是会把这游戏推荐给人玩
+
+
+*****
+
+####  Algie  
+##### 283#       发表于 2025-12-11 06:39
+
+吹哥要公布某些东西了，可能就在tga上
+[https://www.youtube.com/watch?v=CU0VikkaaZ0](https://www.youtube.com/watch?v=CU0VikkaaZ0)
+
+吹哥推箱，出来
+
+
+*****
+
+####  Algie  
+##### 284#       发表于 2025-12-12 16:13
+
+吹哥推箱怎么说呢，感觉美术花了点，第一眼上去没有怪物远征给我的感觉那么清爽。。。
+
+
+*****
+
+####  BRAVADO  
+##### 285#       发表于 2025-12-14 23:58
+
+<blockquote>Algie 发表于 2025-12-12 16:13
+吹哥推箱怎么说呢，感觉美术花了点，第一眼上去没有怪物远征给我的感觉那么清爽。。。 ...</blockquote>
+怪兽远征作者牢A好像和牢吹爆了，可以看dc或者artless的新视频。
+
+
+*****
+
+####  铃森冬  
+##### 286#       发表于 2025-12-15 02:36
+
+到没到爆了的程度有点难说，把 thinky 频道里 Draknek 发的声明链接薅过来了：
+https://bsky.app/profile/draknek.bsky.social/post/3m7qybidq7k2s
+
+个人总结下来也就是两点：
+1. 认为新游宣传片太强调吹哥本人了，实际上这游戏很可能不像前面两作那样具有比较强的吹哥本人的作者性（吹哥做这游戏一半目的是搞个基于他新编程语言 JAI 的大型项目用来展示，游戏内容上吹哥很可能只统筹了项目加指导关卡设计。游戏机制本身是四个推箱游戏原型作为四个世界的基础玩法，加 engimash 的物体穿越世界边界改变成对应的性质的组合。）
+
+2. Draknek 本人支持多元化价值观，然后吹哥大嘴整天在社媒上发表<img src="https://static.stage1st.com/image/smiley/face2017/276.gif" referrerpolicy="no-referrer">路数的暴论，俩人实在是尿不到一壶里<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Algie  
+##### 287#       发表于 2025-12-15 06:19
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68874232&amp;ptid=2017380" target="_blank">铃森冬 发表于 2025-12-15 02:36</a>
+
+到没到爆了的程度有点难说，把 thinky 频道里 Draknek 发的声明链接薅过来了：
+
+https://bsky.app/profile/d ...</blockquote>
+我的理解是这游戏和背后基础设施的开发确实花了不少成本，有回本压力了，以至于需要拿到TGA这种舞台上宣发，强调吹哥名号也是出于宣发考虑，这游戏官推就两千多个关注，吹哥本人都十几万了。
+
+不过去凑TGA的热闹属实有点怪怪的，感觉解谜玩家很少会追着tga看，说是冲破圈去吧一般通过路人只会奇怪这破推箱子也要做十年
+
+
+*****
+
+####  库德里尔  
+##### 288#       发表于 2025-12-15 09:50
+
+麦妖的作者做了个新作，已经有商店界面了。
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  liangyi345  
+##### 289#       发表于 2025-12-15 10:37
+
+这下真的是解谜原神了 只要授权过就可以挂吹游出品
+
+
+*****
+
+####  Algie  
+##### 290#       发表于 2025-12-15 16:13
+
+没跟踪开发全程，既然Draknek那么三观不合，那当初为什么要合作和授权呢
+
+
+*****
+
+####  铃森冬  
+##### 291#       发表于 2025-12-15 16:28
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68876984&amp;ptid=2017380" target="_blank">Algie 发表于 2025-12-15 16:13</a>
+没跟踪开发全程，既然Draknek那么三观不合，那当初为什么要合作和授权呢</blockquote>
+这游戏毕竟开发了十年了，Draknek 在声明的串里也提到正式的授权协议是2018到19年左右签的，当时 DEI 应该还没在游戏圈整出过这么多争议事件，而且吹哥高强度<img src="https://static.stage1st.com/image/smiley/face2017/276.gif" referrerpolicy="no-referrer">很可能是从 Musk 支持 Trump 开始的
+
+
+*****
+
+####  Algie  
+##### 292#       发表于 2025-12-18 03:54
+
+Sean Barrett也下场对Draknek的言论表示全方位赞同
+
+顺带一提他还专门为沉星之序开发了个内部参考用的Promesst 3
+
+
+*****
+
+####  Algie  
+##### 293#       发表于 2025-12-18 22:37
+
+[https://thinkygames.com/events/awards/](https://thinkygames.com/events/awards/)
+
+2025 thinky games award提名出来了
+
+我觉得今年应该是蓝图了
+
+
+*****
+
+####  BRAVADO  
+##### 294#       发表于 2025-12-20 16:54
+
+玩了一段时间的NY/T的每日填数字解谜游戏Pips了。好好玩，游戏规则是把多米诺骨牌填进方格里，使之满足一定条件。平时没时间的时候一天花个五分钟大脑按摩一下还是不错的。NY/T游戏越来越好了，收购Wordle之后，又推出了Connections这个火出圈的填字游戏，更不用说报纸的老本行Crossword。近期也是进入了休闲逻辑解谜游戏领域，推出了每日数独和每日pips。
+
+<img src="https://img.stage1st.com/forum/202512/20/164548e4ikkxf0k43gx82g.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (50.28 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-20 16:45 上传
+
+
+*****
+
+####  莉可厨  
+##### 295#       发表于 2025-12-20 17:07
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68877080&amp;ptid=2017380" target="_blank">铃森冬 发表于 2025-12-15 16:28</a>
+这游戏毕竟开发了十年了，Draknek 在声明的串里也提到正式的授权协议是2018到19年左右签的，当时 DEI 应 ...</blockquote>
+吹哥居然是maga吗，我还以为他会是桑德斯那样老左派的支持者<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+*****
+
+####  BRAVADO  
+##### 296#       发表于 2025-12-20 21:29
+
+<blockquote>Algie 发表于 2025-12-18 22:37
+https://thinkygames.com/events/awards/
+
+2025 thinky games award提名出来了
+
+我觉得今年应该是蓝图了 ...</blockquote>
+Only Sliding零提？好吧😑
+
+
+*****
+
+####  铃森冬  
+##### 297#       发表于 2025-12-21 09:49
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68902524&amp;ptid=2017380" target="_blank">莉可厨 发表于 2025-12-20 17:07</a>
+吹哥居然是maga吗，我还以为他会是桑德斯那样老左派的支持者</blockquote>
+准确来说应该算是比较精英主义的 tech right 的感觉吧，具体的参考马斯克不会差很多，俩人都是个人能力很强又喜欢到处输出自已的一套价值观那种，反正左是不可能的
+
+至于跟 maga 合流肯定是<img src="https://static.stage1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">第二任期前后的事了，敌人的敌人是朋友这一块
+
+不过比起吹哥现在整天在 X 上见证，之前到处做过的很多主题包括游戏与教育，技术传承之类的 talk 还是很有想法的值得看看，B站上应该都有带字幕的转载
+

@@ -7516,3 +7516,84 @@ $CAHE`O$~LN{)37WQ$RM2JQ.jpg
 
 <img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">处理方式sb到令人只想笑。为了所谓的公平把所有利用bug刷的存档和排名删了，可以理解，但是很多人就只是因为平时刷存档太恶心太费钱才用这个方法刷的存档，跟排行榜没半点更新。还美其名曰公平，只给没利用bug的玩家发了500钻，笑死
 
+*****
+
+####  伊布桑  
+##### 665#       发表于 2025-12-16 22:38
+
+<img src="https://static.stage1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">处理方式sb到令人只想笑。为了所谓的公平把所有利用bug刷的存档和排名删了，可以理解，但是很多人就只是因为平时刷存档太恶心太费钱才用这个方法刷的存档，跟排行榜没半点更新。还美其名曰公平，只给没利用bug的玩家发了500钻，笑死
+
+*****
+
+####  三谷歩夢  
+##### 666#       发表于 2025-12-20 19:00
+
+BOSS自选复制，增加神闪概率，稀有事件概率增加，开局选项增加，还有重roll闪
+
+然而要等2月实装
+
+
+*****
+
+####  三谷歩夢  
+##### 667#       发表于 2025-12-20 19:51
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68902856&amp;ptid=2256125" target="_blank">长谷川红叶 发表于 2025-12-20 19:08</a>
+
+④奶刀被杀了，小丑和特蕾莎直接重做，返还你养成素材，2月死刑执行。
+
+因为4星角色机制太强，借口为了游戏 ...</blockquote>
+XM传统艺能了，以前E7砍光正太之类的3星就这么搞的
+
+
+*****
+
+####  长谷川红叶  
+##### 668#       发表于 2025-12-20 20:09
+
+赛季末了才告诉玩家，其实我们有版本主推限时UP也是从E7来的么<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+冲着不怕错过角色所以抽了奶刀龟甲缚的玩家情何以堪<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  sodah  
+##### 669#       发表于 2025-12-20 22:52
+
+明年2月才正式开服是吧？
+
+
+*****
+
+####  LMBS  
+##### 670#       发表于 2025-12-20 23:18
+
+看下刚画的饼，痛点基本解决的七七八八
+
+傻逼棒子，这些问题稍微玩一个月就不能忍，还能放到开服版本
+
+开服体验好点流失少几成流水多点不好吗
+
+而且这些系统修改看着就不算难，怎么还要改两个月
+
+
+*****
+
+####  主人ハム子  
+##### 671#       发表于 2025-12-21 09:30
+
+等大改完再来玩。<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  暗口崩子  
+##### 672#       发表于 2025-12-21 10:29
+
+<img src="https://static.stage1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">千鹤版本就只登录了，大龟裂反正随便打个排名就滚，活动 boss 也早爆杀了。看看啥时候刷存档减负，不然我就只在肉鸽更新的时候玩几把肉鸽了
+
+[论坛助手,iPhone](https://stage1st.com/2b//forum.php?mod=viewthread&amp;tid=2029836)
+
