@@ -7574,3 +7574,61 @@ sc第一天npc，第二天的sc把迷光单拎出来，迷光算夯，没有迷�
 <img src="https://p.sda1.dev/29/67812442beef55cd914f3012bdea8018/image.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/29/cc3508736ca42a7047f9f660d6af0a9d/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  Unlight  
+##### 7264#         楼主| 发表于 2025-12-21 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68903574&amp;ptid=2130897" target="_blank">陆久舟 发表于 2025-12-20 21:37</a>
+
+学p选新夏亚，不禁感叹小美野也太爱萝卜片了，之前100事务所社长还选了背心男 ...</blockquote>
+可初星也没有小学生啊，萝莉妈妈这块咋补上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该去隔壁的
+
+
+*****
+
+####  三度音  
+##### 7265#       发表于 2025-12-17 22:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68889151&amp;ptid=2130897" target="_blank">a1370303 发表于 2025-12-17 19:49</a>
+
+里御三家的设定和初设变化真大啊</blockquote>
+在这个阶段我想应该还不是认真的做主控角色，只是在设计些剧情里关系比较近的反派NPC吧可能
+
+*****
+
+####  陆久舟  
+##### 7266#       发表于 2025-12-20 21:37
+
+ 本帖最后由 陆久舟 于 2025-12-20 21:41 编辑 
+
+学p选新夏亚，不禁感叹小美野也太爱萝卜片了，之前100事务所社长还选了背心男<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kykawaiii  
+##### 7267#       发表于 2025-12-20 22:37
+
+唉～<img src="https://p.sda1.dev/29/a107e42b44e047183be52588c30220fb/image.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 14, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+*****
+
+####  Unlight  
+##### 7268#         楼主| 发表于 2025-12-21 00:54
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68903574&amp;ptid=2130897" target="_blank">陆久舟 发表于 2025-12-20 21:37</a>
+
+学p选新夏亚，不禁感叹小美野也太爱萝卜片了，之前100事务所社长还选了背心男 ...</blockquote>
+可初星也没有小学生啊，萝莉妈妈这块咋补上<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该去隔壁的
+
+*****
+
+####  lawsherman  
+##### 7269#       发表于 2025-12-21 12:18
+
+卢婷今天生日，报告了结婚的事情
+
+（明明新年结婚报告才是传统）
+
