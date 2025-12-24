@@ -593,3 +593,123 @@ gtplanet 上应该有讨论 还没去看…</blockquote>
 
 —— 来自 vivo V2419A, Android 16, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
 
+*****
+
+####  洛克萨斯  
+##### 1965#       发表于 2025-12-18 11:41
+
+这dlc有点难啊，我杆位起步都能被后车直道生吃，车又不能改....<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  iou90  
+##### 1966#       发表于 2025-12-18 12:16
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68892098&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2025-12-18 11:41</a>
+这dlc有点难啊，我杆位起步都能被后车直道生吃，车又不能改....</blockquote>
+起点的几个都不难
+中间的就开始上强度了 蒙扎破鞋练习+排位跑了3圈进不了前3 不过正赛还是勉强赢了 很有挑战性
+不过即使这样 gtplanet 那群 dr a/a+/s 的还是抱怨简单233333 最近有更新不知道是变难还是变简单
+
+这周周常的维伦纽夫 sf 也非常非常的难 我累计开了得有50圈以上重试了5，6次好几天才最后拿到第一 总时间 21:20:xx 最快圈进了21 但也有很多圈25 感觉平均圈速进24才有机会赢…
+
+
+*****
+
+####  洛克萨斯  
+##### 1967#       发表于 2025-12-18 14:08
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68892287&amp;ptid=2027972" target="_blank">iou90 发表于 2025-12-18 12:16</a>
+
+起点的几个都不难
+
+中间的就开始上强度了 蒙扎破鞋练习+排位跑了3圈进不了前3 不过正赛还是勉强赢了 很有 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我就是起步那个被打的怀疑自我了，明明都是gti为啥能被直道生吃啊，我都油门踩死了
+
+
+*****
+
+####  iou90  
+##### 1968#       发表于 2025-12-18 14:18
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68892798&amp;ptid=2027972" target="_blank">洛克萨斯 发表于 2025-12-18 14:08</a>
+我就是起步那个被打的怀疑自我了，明明都是gti为啥能被直道生吃啊，我都油门踩死了 ...</blockquote>
+起步确实 我也不懂有啥高阶技巧 被嘎嘎超
+不过后面它们不快的
+
+
+*****
+
+####  洛克萨斯  
+##### 1969#       发表于 2025-12-18 14:33
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68892860&amp;ptid=2027972" target="_blank">iou90 发表于 2025-12-18 14:18</a>
+
+起步确实 我也不懂有啥高阶技巧 被嘎嘎超
+
+不过后面它们不快的</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我是起步守住了位置跑着跑着隔壁有台车从我后并排过来直线生吃我，我那时候已经是油门踩死了，然后跑着跑着又被一台车生吃，心态炸了
+
+
+*****
+
+####  Totokei  
+##### 1970#       发表于 2025-12-18 14:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然没买dlc没开过新sophy，但是旧sophy的优点是难但是是平等起跑上的难
+
+普通比赛的ai的难是动态起跑先拉出一大截，到冲线也追不上
+
+
+*****
+
+####  洛克萨斯  
+##### 1971#       发表于 2025-12-18 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68893091&amp;ptid=2027972" target="_blank">Totokei 发表于 2025-12-18 14:58</a>
+
+虽然没买dlc没开过新sophy，但是旧sophy的优点是难但是是平等起跑上的难
+
+普通比赛的ai的难是动态起跑先拉 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特别是开小马力限定车的比赛，真是恨不得脚踩进去发动机，动都不动的，硬生生被拉爆
+
+
+*****
+
+####  Totokei  
+##### 1972#       发表于 2025-12-18 14:58
+
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然没买dlc没开过新sophy，但是旧sophy的优点是难但是是平等起跑上的难
+
+普通比赛的ai的难是动态起跑先拉出一大截，到冲线也追不上
+
+*****
+
+####  洛克萨斯  
+##### 1973#       发表于 2025-12-18 17:37
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68893091&amp;ptid=2027972" target="_blank">Totokei 发表于 2025-12-18 14:58</a>
+
+虽然没买dlc没开过新sophy，但是旧sophy的优点是难但是是平等起跑上的难
+
+普通比赛的ai的难是动态起跑先拉 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特别是开小马力限定车的比赛，真是恨不得脚踩进去发动机，动都不动的，硬生生被拉爆
+
+*****
+
+####  洛克萨斯  
+##### 1974#       发表于 2025-12-21 14:54
+
+在日本福冈举行的2025 年 Gran Turismo 世界系列赛总决赛期间，该系列制作人山内一典在接受采访
+
+1.《Gran Turismo 7》目前拥有超过 200 万月活跃用户，大多数游戏在发售数年后玩家数量都会持续下降，但GT7似乎打破了传统的游戏生命周期规律，这种增长并非通过传统的“降价”策略实现的
+
+2.系列游戏的全球销量已正式突破 1 亿份
+
+3.《GT赛车》世界系列赛的赛事如今通过全球转播渠道，每场赛事平均吸引约八百万观众。
+
+4.会对《GT赛车8》的未来发展产生一些有趣的影响
+
+懂了，这代卖的太好，8代遥遥无期，大家继续爽玩
+
