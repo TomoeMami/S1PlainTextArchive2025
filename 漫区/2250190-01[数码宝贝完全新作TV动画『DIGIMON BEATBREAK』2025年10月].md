@@ -3983,3 +3983,208 @@ da光是探索就能写多少，人数也比dbb多，没法比吧<img src="https
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">实际演出来的效果配上退化回、耄耋兽的段子真的有点好笑
 
+*****
+
+####  DARK_HGCG  
+##### 343#       发表于 2025-12-21 08:23
+
+守宫兽进化！犰狳蜥兽！
+
+
+*****
+
+####  大耳兽  
+##### 344#       发表于 2025-12-21 09:48
+
+这配色像火龙果啊<img src="https://static.stage1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">。
+
+
+*****
+
+####  はちたや  
+##### 345#       发表于 2025-12-21 10:06
+
+这进化除了头憨憨的还挺可以的
+
+成熟期光炮打出了究极体的气势啊
+
+
+*****
+
+####  TOYSTORY  
+##### 346#       发表于 2025-12-21 11:15
+
+<img src="https://img.stage1st.com/forum/202512/21/111438kog2hrz6bki5dhhl.jpg" referrerpolicy="no-referrer">
+
+<strong>DIGIMONBEATBREAK.jpg</strong> (288.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-21 11:14 上传
+
+<img src="https://img.stage1st.com/forum/202512/21/111430dq1qcfrqlzib14ro.jpg" referrerpolicy="no-referrer">
+
+<strong>52c552d1a0151ced7178c3352616c09334611421.jpg</strong> (338.57 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-21 11:14 上传
+
+<img src="https://img.stage1st.com/forum/202512/21/111431dxfjnx7v7egegdfq.jpg" referrerpolicy="no-referrer">
+
+<strong>f562763a4e082353e75cb999e955750c34611421.jpg</strong> (342.55 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-21 11:14 上传
+
+<img src="https://img.stage1st.com/forum/202512/21/111436xihillzpzlhjy8l0.jpg" referrerpolicy="no-referrer">
+
+<strong>8e60d1f06963f3e91e33746943b6cafa82672242.jpg</strong> (156.21 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-21 11:14 上传
+
+<img src="https://img.stage1st.com/forum/202512/21/111437pnz2objujoeyoq5j.jpg" referrerpolicy="no-referrer">
+
+<strong>8fcf28fcaf88622644dddb72cb50fd3682672242.jpg</strong> (170.92 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-21 11:14 上传
+
+<img src="https://img.stage1st.com/forum/202512/21/111439djqnyni2qn4nintn.jpg" referrerpolicy="no-referrer">
+
+<strong>f96cc86761b37d0ef6eaf67f6e03217c82672242.jpg</strong> (191.07 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-21 11:14 上传
+
+憋这么久终于有大的了，新角色造型都还不错嘛<img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  InfiniteGyre  
+##### 347#       发表于 2025-12-21 11:35
+
+感觉已经看到完全体和究极体的样子了，完全体变大龙或者飞龙，究极体再变龙人是吧<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  粉儿alice  
+##### 348#       发表于 2025-12-21 11:55
+
+声优都是老面孔
+钉宫是柴田山口御用声优
+白石连续配了三朝元老
+菊池心也可以回来了吧
+
+
+*****
+
+####  cosmonova  
+##### 349#       发表于 2025-12-21 13:24
+
+宿敌役四人组的人设属性跟我方一一对应啊，武装獾别又对位吃瘪了
+
+
+*****
+
+####  小学生把持不住  
+##### 350#       发表于 2025-12-21 13:54
+
+这剧情发展模板怎么跟隔壁地平线前期差不多，但数码这边莫名其妙地土一点
+
+
+*****
+
+####  zing223  
+##### 351#       发表于 2025-12-21 14:16
+
+比上集脚本自然很多，但分镜和原画似乎在资源分配上各有各的想法<img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  himfsz  
+##### 352#       发表于 2025-12-21 15:53
+
+话说这个才更像弟弟吧，比起伽马兽，伽马兽的弟弟设定到最后都没说是怎么回事，莫名其妙的
+
+
+*****
+
+####  moudianzi  
+##### 353#       发表于 2025-12-21 17:16
+
+进了！进了！进了!@#@$%@^
+
+但咋怪怪的呢，只看颜色的话，你这守宫兽的成熟期（绿→玫红），真没和水果兽的成熟期（玫红→绿，副栉龙兽）弄反吗
+
+你既然是变色龙，应该还能像变色龙一样进化其其他形态吧，贯彻一下数码兽多进化分支的初心，现在这只看着太憨了<img src="https://static.stage1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  永恒的王牌  
+##### 354#       发表于 2025-12-21 17:29
+
+怎么说呢，上周说五行星火跳正挡刀下线还算是玩狮子兽烂梗，但这次爆出来和京同期+看不惯金田做法怎么还真对上了<img src="https://static.stage1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+————
+这周对照画面比较多，更直接表明之前的矛盾其实就是智郎看不惯以前不成熟的自己了
+
+
+*****
+
+####  alingkz  
+##### 355#       发表于 2025-12-21 19:00
+
+这成熟期表现力......孩子们这不是数值这是友情与羁绊<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  菲泽k  
+##### 356#       发表于 2025-12-21 19:57
+
+这进化出的形态像是隔壁的固拉多。虽说是网状进化吧，但看这不像是从守宫兽进化出来的。
+
+
+*****
+
+####  大耳兽  
+##### 357#       发表于 2025-12-21 20:04
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68905956&amp;ptid=2250190" target="_blank">himfsz 发表于 2025-12-21 15:53</a>
+话说这个才更像弟弟吧，比起伽马兽，伽马兽的弟弟设定到最后都没说是怎么回事，莫名其妙的 ...</blockquote>
+伽马兽是被宙哥的爹送到人类世界的吧。
+
+
+*****
+
+####  丹德里恩  
+##### 358#       发表于 2025-12-22 13:17
+
+这周的固拉多甚至会飞天不是
+
+官网图鉴里明说了是高输出高耗能，破坏死光能越级，平时能量不够就会躲避战斗
+
+剧情上整个第一阶段就是智郎跟自己和解重新融入集体的过程，希望你前期铺垫了那么久后头能好好写
+火星这恨铁不成钢的尿性+狮子兽怎么看都是要被背刺的
+
+
+*****
+
+####  hsyg  
+##### 359#       发表于 2025-12-22 15:10
+
+第二季主要是争当清洁工之王……总觉得有点绕，之前也没排位系统，你两边加起来都打不过现役五行星当清洁王有什么意义吗。
+
+而且一下子多一倍对位配角，感觉需要优先消耗掉的反而是他们，火天王进化究极体再离场的概率不低，清洁战队肯定没进化到最后的机会
+
