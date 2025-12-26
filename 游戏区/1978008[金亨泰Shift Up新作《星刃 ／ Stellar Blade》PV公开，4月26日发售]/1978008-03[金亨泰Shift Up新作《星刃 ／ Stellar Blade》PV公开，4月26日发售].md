@@ -15979,3 +15979,89 @@ ds5跑起来之后的大跳小跳落地都有振动，ds4就只有大跳落地�
 
 还有自适应扳机，体验确实更细腻了。<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+*****
+
+####  kaion111  
+##### 4317#       发表于 2025-12-20 18:43
+
+通关了，一周目能收集的全收集了，打了个真结局，其他结局云一下
+
+总体体验还行，就是大沙漠不开互动地图体验会很差，开了也累的不行
+
+格挡和闪避的反击好像没啥用啊，不如复读技能来的舒服
+
+一个赏心悦目的主角确实能提升不少分数，不知道第二部啥时候出
+
+
+*****
+
+####  折中旗帜鲜明  
+##### 4318#       发表于 2025-12-21 10:30
+
+这大地图就没快捷键吗，每次找任务点找路都要打开菜单再切过去太麻烦了
+
+
+*****
+
+####  风浦可符香(P.N)  
+##### 4319#       发表于 2025-12-21 12:14
+
+ 本帖最后由 风浦可符香(P.N) 于 2025-12-21 12:21 编辑 
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68904990&amp;ptid=1978008" target="_blank">折中旗帜鲜明 发表于 2025-12-21 10:30</a>
+
+这大地图就没快捷键吗，每次找任务点找路都要打开菜单再切过去太麻烦了</blockquote>
+PS版本默认是触摸板，但是PC版手柄好像默认为空，一般进设置里设成十字键的→之类的就行了
+
+
+*****
+
+####  折中旗帜鲜明  
+##### 4320#       发表于 2025-12-21 12:39
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68905319&amp;ptid=1978008" target="_blank">风浦可符香(P.N) 发表于 2025-12-21 12:14</a>
+
+PS版本默认是触摸板，但是PC版手柄好像默认为空，一般进设置里设成十字键的→之类的就行了 ...</blockquote>
+多谢，PC版设置里找到了
+
+
+*****
+
+####  Rebirth_DAN  
+##### 4321#       发表于 2025-12-22 16:15
+
+沉迷拍照 感觉暖暖拍照才是核心玩法<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/706784bdb80e081da1d32b118a24c2a3/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/2469967f5ce10e9555c4a34080ec8328/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/2d2028f5d3f3b195ac4758d396842e5b/image.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/d27621c0dae2dc4a4e2b4d77e5fb7ede/image.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  wingofsilver  
+##### 4322#       发表于 2025-12-23 09:17
+
+<img src="https://static.stage1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可惜冬促只有8折，不然就买了（
+
+
+*****
+
+####  折中旗帜鲜明  
+##### 4323#       发表于 2025-12-23 11:45
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68912679&amp;ptid=1978008" target="_blank">wingofsilver 发表于 2025-12-23 09:17</a>
+
+可惜冬促只有8折，不然就买了（</blockquote>
+不介意的话第三方KEY现在190左右，如果平时用小黑盒签到还能进一步抵扣
+
+
+*****
+
+####  wingofsilver  
+##### 4324#       发表于 2025-12-23 12:50
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68913693&amp;ptid=1978008" target="_blank">折中旗帜鲜明 发表于 2025-12-23 11:45</a>
+
+不介意的话第三方KEY现在190左右，如果平时用小黑盒签到还能进一步抵扣</blockquote>
+黑盒那个H币折扣确实还不错，不过刚买完寂静岭F（哎嘿
+
