@@ -2828,3 +2828,126 @@ https://www.takaratomy.co.jp/products/wixoss/product/wx26_cp1/
 姐妹合体变身和合体技实在是做的太好看了 下集36集应该是解决白女王突入最终主线？
 很难想象这片这么稳的走完了3/4，剧情日常主线音乐都看的特别舒适<img src="https://static.stage1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+*****
+
+####  wwwDYYU  
+##### 257#       发表于 2025-12-21 09:57
+
+果然是自省回，快点入队吧，那边三人组的纳比优雷达没用了，顺便，阳之下夏，超好一女人。第四季度只能说任务很重了，希望能收尾成功吧。
+
+不过一想到下周停播，下下周总集篇就难绷……
+
+
+*****
+
+####  wwwDYYU  
+##### 258#       发表于 2025-12-21 10:07
+
+阳之下夏女士，会赢吗？
+
+<img src="https://img.stage1st.com/forum/202512/21/100747vqvprhm5g9qc0s01.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20251221_100628.jpg</strong> (14.51 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-21 10:07 上传
+
+<img src="https://img.stage1st.com/forum/202512/21/100747bzosf11jfcjfc4cr.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20251221_100733.jpg</strong> (189.39 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-21 10:07 上传
+
+
+*****
+
+####  粉儿alice  
+##### 259#       发表于 2025-12-21 12:08
+
+洗白追加过度回
+
+从无字幕ed看明显还在藏东西
+
+
+*****
+
+####  kos_mos  
+##### 260#       发表于 2025-12-23 20:37
+
+纳比尤已经没用了<img src="https://static.stage1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.stage1st.com/forum/202512/23/203736gwkjzgrwrpypymf6.png" referrerpolicy="no-referrer">
+
+<strong>po56.png</strong> (224.96 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-23 20:37 上传
+
+<img src="https://img.stage1st.com/forum/202512/23/203736cwzzsv2kvuy9ezu2.png" referrerpolicy="no-referrer">
+
+<strong>po57.png</strong> (328.26 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-23 20:37 上传
+
+<img src="https://img.stage1st.com/forum/202512/23/203736bo4ex2roww1xne2x.png" referrerpolicy="no-referrer">
+
+<strong>po58.png</strong> (302.76 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-23 20:37 上传
+
+<img src="https://img.stage1st.com/forum/202512/23/203737wjjrj4xh8xrh8hna.png" referrerpolicy="no-referrer">
+
+<strong>po59.png</strong> (313.16 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-23 20:37 上传
+
+<img src="https://img.stage1st.com/forum/202512/23/203737frpkofx4up1pr2z5.png" referrerpolicy="no-referrer">
+
+<strong>po60.png</strong> (294.78 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-23 20:37 上传
+
+<img src="https://img.stage1st.com/forum/202512/23/203737sq7nw99kvv92ndwn.png" referrerpolicy="no-referrer">
+
+<strong>po61.png</strong> (265.93 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-23 20:37 上传
+
+<img src="https://img.stage1st.com/forum/202512/23/203738lqfujjwdyq0l1hf8.png" referrerpolicy="no-referrer">
+
+<strong>po62.png</strong> (147.15 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-23 20:37 上传
+
+<img src="https://img.stage1st.com/forum/202512/23/203738vjvavaguz7bfaa9j.png" referrerpolicy="no-referrer">
+
+<strong>po63.png</strong> (292.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-23 20:37 上传
+
+<img src="https://img.stage1st.com/forum/202512/23/203738jt84800iv1eeecs8.png" referrerpolicy="no-referrer">
+
+<strong>po64.png</strong> (282.71 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-23 20:37 上传
+
