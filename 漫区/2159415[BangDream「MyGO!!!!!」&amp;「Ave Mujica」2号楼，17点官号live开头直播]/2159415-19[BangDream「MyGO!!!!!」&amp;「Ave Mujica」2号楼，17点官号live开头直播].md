@@ -11252,3 +11252,12 @@ https://x.com/bang_dream_info/status/1988441628210852235
 元祖邦多利酱12话壁纸
 <img src="https://p.sda1.dev/29/dfdb0222895c7149da249086148f94d0/image.jpg" referrerpolicy="no-referrer">
 
+*****
+
+####  CyDiablo  
+##### 27406#       发表于 2025-12-25 21:25
+
+汽车🚗出来的时候大脑升级了一下
+[【《BanG Dream! 梦想协奏曲 第三季》 元祖迷你13 伊芙圣诞老人来啦-哔哩哔哩番剧】](https://b23.tv/ep2580849)
+<img src="https://p.sda1.dev/29/98f0617b7984e2f85e361d8f2cfb8079/image.jpg" referrerpolicy="no-referrer">
+
