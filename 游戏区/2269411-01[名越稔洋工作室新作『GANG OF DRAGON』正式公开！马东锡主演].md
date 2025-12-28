@@ -769,3 +769,36 @@ https://www.bilibili.com/video/BV17b4RzKEth</blockquote>
 
 —— 来自 [鹅球](https://www.pgyer.com/GcUxKd4w) v3.4.98
 
+*****
+
+####  Piano-Forest  
+##### 85#         楼主| 发表于 2025-12-25 15:47
+
+Steam页面截图更新
+<img src="https://p.sda1.dev/29/cbbba8943703d07f51f2ca0d0d0f9991/GANG-OF-DRAGON_2025_12-25-25_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/c5476a5b4d8e1d9da8b68f8cdc3acb1a/GANG-OF-DRAGON_2025_12-25-25_002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/8dbe17d83f51832cd4ab76e47e152212/GANG-OF-DRAGON_2025_12-25-25_003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/694f84f6a531b626dd4c953e165cabc1/GANG-OF-DRAGON_2025_12-25-25_004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/f4153813a8b296d45f8346f968a49792/GANG-OF-DRAGON_2025_12-25-25_005.jpg" referrerpolicy="no-referrer">
+
+之前的几张
+<img src="https://p.sda1.dev/29/d6de1e54a2ea8f38dc341373190c9619/GANG-OF-DRAGON_2025_12-11-25_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/8a1863272bcbc77a9044fc7505d32206/GANG-OF-DRAGON_2025_12-11-25_002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/7db5573e168c76069c446954471ff1ab/GANG-OF-DRAGON_2025_12-11-25_003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/29/1f93fa9a776b74b1425195434d065e06/GANG-OF-DRAGON_2025_12-11-25_004.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  水边井  
+##### 86#       发表于 2025-12-25 15:57
+
+与其说是如龙，不如说是雅库扎版gta
+
+*****
+
+####  u2deack  
+##### 87#       发表于 2025-12-25 15:59
+
+要一直看着一个能站屏幕1/3的胖子背影我就有点不想玩了
+
