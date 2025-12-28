@@ -2801,3 +2801,66 @@ TGA纵容尼尔得寸进尺直接玩的更大
 Neil Druckmann on Leaving ‘The Last of Us,’ His New Game ‘Intergalactic’ and How Involved He’ll Be on Season 3: ‘My Job Is to Stay Very High Level’ (EXCLUSIVE)
 [https://variety.com/2025/gaming/ ... eo-game-1236514453/](https://variety.com/2025/gaming/news/neil-druckmann-last-of-us-exit-intergalactic-video-game-1236514453/)
 
+*****
+
+####  Piano-Forest  
+##### 273#         楼主| 发表于 2025-12-24 19:36
+
+<img src="https://p.sda1.dev/29/e034bbb280ccaf1a63ea6b54a2636b7c/20251224_183351.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  ayeah  
+##### 274#       发表于 2025-12-25 12:34
+
+真的有人会玩这游戏吗？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLS-AL00, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  风景很好  
+##### 275#       发表于 2025-12-25 12:45
+
+<blockquote>ayeah 发表于 2025-12-25 12:34
+真的有人会玩这游戏吗？
+
+—— 来自 HUAWEI CLS-AL00, Android 12, 鹅球 v3.5.99</blockquote>
+那些被规训好的索索肯定会买
+
+
+*****
+
+####  葵  
+##### 276#       发表于 2025-12-25 14:18
+
+这游戏现在奔着索尼有史以来最大投资去了，要是真暴死了，索尼能放过大仙贝么?<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  riin2  
+##### 277#       发表于 2025-12-25 14:59
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68922384&amp;ptid=2210380" target="_blank">Piano-Forest 发表于 2025-12-24 19:36</a></blockquote>
+这犹太蜡烛不能不画吗，已经能代表顽皮狗了？
+
+*****
+
+####  chivalry  
+##### 278#       发表于 2025-12-25 15:00
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68926125&amp;ptid=2210380" target="_blank">葵 发表于 2025-12-25 14:18</a>
+这游戏现在奔着索尼有史以来最大投资去了，要是真暴死了，索尼能放过大仙贝么? ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望大仙杯不要放过索尼，加大投资！
+
+
+*****
+
+####  Mikumiku831  
+##### 279#       发表于 2025-12-25 15:17
+
+建议3亿开发费 等一个血本无归（我是🔒狗
+
