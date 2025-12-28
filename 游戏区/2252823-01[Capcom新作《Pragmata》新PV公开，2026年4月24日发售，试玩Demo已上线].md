@@ -3190,3 +3190,10 @@ https://www.capcom-games.com/pragmata/zh-hans/me ...</blockquote>
 
 美术倒是其次，第一次发现capcom的C竟然可以单独当识别使用……
 
+*****
+
+####  Piano-Forest  
+##### 322#         楼主| 发表于 2025-12-25 18:08
+
+<img src="https://p.sda1.dev/29/1a2792297525b216365990dbf7e3349e/20251225_175540.jpg" referrerpolicy="no-referrer">
+

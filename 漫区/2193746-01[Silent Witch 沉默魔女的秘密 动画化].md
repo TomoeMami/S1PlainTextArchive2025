@@ -3532,3 +3532,44 @@ syl，楼里没提的话，按习惯确实很难想象冰男副会长居然是�
 
 <img src="https://static.stage1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">男的用了就会死，还以为什么麻辣魔导具，原来是集美
 
+*****
+
+####  Piano-Forest  
+##### 292#         楼主| 发表于 2025-12-25 18:24
+
+◤お知らせ◢
+
+『このライトノベルがすごい！ 2026』
+
+（宝島社刊）にて
+
+#サイレントウィッチ が
+
+【単行本・ノベルズ部門 １位】
+
+を獲得！🎉
+
+応援、本当にありがとうございます！
+
+藤実なんな先生より
+
+アルパトラ風民族衣装に
+
+身を包んだモニカ＆ラナの
+
+お祝いイラストも届きました！
+<img src="https://p.sda1.dev/29/dd2243bd0d5447341c97169dc809fa68/20251225_182109.jpg" referrerpolicy="no-referrer">
+
+🎄Happy Holidays!🎄
+
+皆様の世界にも
+
+冬の精霊の季節が
+
+訪れていますね❄️
+
+お身体にはお気をつけて
+
+お過ごしください……
+<img src="https://p.sda1.dev/29/1125b05e0aaa979f63ea47490679f81d/20251225_182115.jpg" referrerpolicy="no-referrer">
+
