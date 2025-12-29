@@ -3914,3 +3914,211 @@ ego污血泣泪•应龙的“不许”可以锁血，要不设定黑兽辰为�
 
 小金还非常鸡贼的把食指的臂章等特征遮起来了，有意往那位身上引啊，可惜那次解包已经爆出来过真身了，不然我不敢想光看着PV得有多爆炸。
 
+*****
+
+####  Jamaisvu  
+##### 1208#       发表于 2025-12-25 09:48
+
+<img src="https://img.stage1st.com/forum/202512/25/094421e0r7yerr9y0ree1y.png" referrerpolicy="no-referrer">
+
+<strong>1766627032646.png</strong> (255.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-25 09:44 上传
+
+由于赛季变动后旧通行证收益减半，所以本周更新的镜牢奖励建议在图中表格第二行所述“12月31日11时至1月1日5时”之间领取（可以先打，但别结算），这样得到的是新赛季的经验。
+
+提前领是旧通行证经验，延迟领少一周加成奖励。
+
+只要记着跨年夜玩边狱巴士领奖励就好了～
+
+
+*****
+
+####  Jamaisvu  
+##### 1209#       发表于 2025-12-25 22:02
+
+提醒大家一下，目前获取的所有碎片资源到明年全会减半，有抽卡计划最好也留到12.31后。
+
+说这种事主要是我刚才闲着没事，看了下1号线送的必得十连券，发现都是第一赛季的就觉得没价值了抽着玩吧，结果双黄后发现亏了50碎片...<img src="https://static.stage1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  Jamaisvu  
+##### 1210#       发表于 2025-12-26 19:20
+
+ 本帖最后由 Jamaisvu 于 2025-12-26 19:23 编辑 
+
+新赛季的人格出了，LCA瓦吉特先锋三队队长奥提斯和食指苦行者[纸片]浮士德：
+
+<img src="https://img.stage1st.com/forum/202512/26/190818scdyn96hmf29gkw9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_185208.jpg</strong> (222.18 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:08 上传
+
+<img src="https://img.stage1st.com/forum/202512/26/190818zfkt2stthez98seo.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_185247.jpg</strong> (227.93 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:08 上传
+
+<img src="https://img.stage1st.com/forum/202512/26/190819xfeqxsq150fet4e1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_185301.jpg</strong> (246.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:08 上传
+
+瓦吉特大家都很熟悉，是废墟图书馆里一般接待的客人，扭曲侦探里提到他们是边狱公司董事之一狄亚斯的私兵，埃及风格，攻击有金沙特效。
+
+PV里使用了斩击和子弹，不愧是有钱人啊。
+
+<img src="https://img.stage1st.com/forum/202512/26/190819dn6r7777zjsdq4jy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_185622.jpg</strong> (229.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:08 上传
+
+<img src="https://img.stage1st.com/forum/202512/26/190819edkdhg8jfg8g98pr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_185922.jpg</strong> (242.92 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:08 上传
+
+<img src="https://img.stage1st.com/forum/202512/26/190820o6g7s4wwzb7m7osy.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_185948.jpg</strong> (254.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:08 上传
+
+可能是执行者有专武后才能剑刃解放吧，演示里没看到明显的蓝光特效。
+
+不过有个乌头花标记的敌人和技能，有指向性地使用后效果拔群（疑似对特例能短暂剑刃解放）。
+
+通行证的新EGO是诅咒人偶、小镇向导和新出的三千大世界：
+
+<img src="https://img.stage1st.com/forum/202512/26/191455xo99zrfrfdu9demd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_190232.jpg</strong> (203.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:14 上传
+
+<img src="https://img.stage1st.com/forum/202512/26/191455llzfg4534nah6ntg.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_190219.jpg</strong> (224.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:14 上传
+
+根据镜牢可能吃嫉妒共鸣加成，中指奥提斯预订？
+
+<img src="https://img.stage1st.com/forum/202512/26/191455dvklbyvdfkldckc6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_190258.jpg</strong> (309.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:14 上传
+
+<img src="https://img.stage1st.com/forum/202512/26/191456yssn8dhheizr4rh4.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_190307.jpg</strong> (280.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:14 上传
+
+每次刷纽本打这玩意都是句点夫MVP。
+
+<img src="https://img.stage1st.com/forum/202512/26/191456rhpdfrcwqrwfdaro.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_190338.jpg</strong> (279.94 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:14 上传
+
+<img src="https://img.stage1st.com/forum/202512/26/191456vczu7oxxupp07dxp.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_190406.jpg</strong> (236.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:14 上传
+
+宝子哥一掏镜子我还以为是终末日历亚种。
+
+<img src="https://img.stage1st.com/forum/202512/26/191457dqflpfv1utzx4mel.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_190421.jpg</strong> (249.84 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:14 上传
+
+<img src="https://img.stage1st.com/forum/202512/26/191457qna454ar1dxdlbwd.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20251226_190437.jpg</strong> (222.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2025-12-26 19:14 上传
+
+良秀一贯的飒和美，不过动作没有敬畏轻蔑惊艳。
+
+EGO都没有演示侵蚀形态，可能有惊喜吧。
+
+话说演示里这帮怪物看着像W列车里的乘客（或者鸿璐某个祖宗），但LCA出马应该是在旧L社支部，该不会都是迷失乘客衍生物吧...
+
+
+*****
+
+####  钟于123  
+##### 1211#       发表于 2025-12-26 20:08
+
+三千世界第一个是箱子，虽然掏了个日历出来确实没懂
+
+长发良秀+拔刀很帅，食指浮和小夫ego太酷了
+
+单看背景似乎是总部被突袭了？不少异想体都是第一赛季的啊，后面的章节里原来2-3章的会不会也能出场呢
+
+
+*****
+
+####  冰原狼  
+##### 1212#       发表于 2025-12-26 20:19
+
+这下东亚三人组变成ego黑长直三人组了<img src="https://static.stage1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

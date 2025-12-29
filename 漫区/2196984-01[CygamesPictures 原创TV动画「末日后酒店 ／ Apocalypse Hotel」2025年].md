@@ -9030,3 +9030,60 @@ BD的卷三、卷四，和官方设定集（図​説​ ​ア​ポ​カ​�
 BD的卷三、卷四，和官方设定集（図​説​ ​ア​ポ​カ​リ​プ​ス​ホ​テ​ル​運​営​記​録）终于到 ...</blockquote>
 期待大佬分享设定集<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+*****
+
+####  弯弓射山猪  
+##### 762#       发表于 2025-12-22 21:23
+
+<img src="https://static.stage1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">第九集想起了长辈
+
+看着狸猫奶奶
+
+一整集都在吸鼻子
+
+
+*****
+
+####  NBXX  
+##### 763#       发表于 2025-12-25 11:17
+
+<img src="https://p.sda1.dev/29/261f0fa9d42b3d5f6de93d2a66d4eabf/586afe13-b1cb-48df-bbef-4c58067c2924.png" referrerpolicy="no-referrer">
+
+漫画第二弹连载再开，我那本设定集还没开封就又有新东西看了。
+
+
+*****
+
+####  nanako单推人  
+##### 764#       发表于 2025-12-26 09:24
+
+晒一下银河楼十则的官方T恤<img src="https://static.stage1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+IMG_6407.jpeg
+(567.64 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-26 09:23 上传
+
+<img src="https://img.stage1st.com/forum/202512/26/092332pwxvlg3lxli3iv3x.jpeg" referrerpolicy="no-referrer">" src="https://static.stage1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  aptx8285144  
+##### 765#       发表于 2025-12-26 09:29
+
+<blockquote>nanako单推人 发表于 2025-12-26 09:24
+晒一下银河楼十则的官方T恤</blockquote>
+网上买的吗？
+
+
+*****
+
+####  nanako单推人  
+##### 766#       发表于 2025-12-26 19:49
+
+<blockquote>aptx8285144 发表于 2025-12-26 09:29
+网上买的吗？字数好多呀233</blockquote>
+官网的 刚出那段时间的周边 好像是2200日元XD
+
