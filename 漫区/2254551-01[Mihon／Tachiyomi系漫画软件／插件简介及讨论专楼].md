@@ -1388,3 +1388,111 @@ okok 我试下
 
 我的J2K再漫画也是一样的报错，现在已经全部迁移到其他平台了<img src="https://static.stage1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+*****
+
+####  Antidote丶  
+##### 125#       发表于 2025-12-22 15:33
+
+ 本帖最后由 Antidote丶 于 2025-12-22 15:36 编辑 
+
+周末部署了suwayomi打算配合可达漫画使用的。结果发现OPDS只能返回下载的内容，用来追连载还是不方便。
+
+问了下作者可能后续会专门做适配。
+
+f34a3f4eec4635da4521d26a8a42004.jpg
+(61.98 KB, 下载次数: 0)
+
+下载附件
+
+2025-12-22 15:36 上传
+
+<img src="https://img.stage1st.com/forum/202512/22/153621h61xn55k09nx6665.jpg" referrerpolicy="no-referrer">
+
+
+*****
+
+####  KDConan  
+##### 126#       发表于 2025-12-24 22:06
+
+咨询个事，我mihon更新到19.3以后，读完一话跳到下一话时总是变成跳到上一话，应该设置哪儿改回来？<img src="https://static.stage1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  彩虹肥宅  
+##### 127#       发表于 2025-12-25 22:01
+
+漫画柜越来越难上了，第一次见那么难上的网址<img src="https://static.stage1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, [鹅球](https://www.pgyer.com/xfPejhuq) v3.5.99-alpha
+
+
+*****
+
+####  keytomylife  
+##### 128#       发表于 2025-12-25 22:25
+
+发现再漫画4级后基本上都齐全了
+
+其他可以删掉
+
+
+*****
+
+####  azbhg1  
+##### 129#         楼主| 发表于 2025-12-26 00:43
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68929069&amp;ptid=2254551" target="_blank">keytomylife 发表于 2025-12-25 22:25</a>
+
+发现再漫画4级后基本上都齐全了
+
+其他可以删掉</blockquote>
+有版权的也有吗
+
+
+*****
+
+####  KDConan  
+##### 130#       发表于 2025-12-26 08:42
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68929624&amp;ptid=2254551" target="_blank">azbhg1 发表于 2025-12-26 00:43</a>
+有版权的也有吗</blockquote>
+没有，只是有些以前看不了的可以夜里看
+
+—— 来自 Xiaomi 23013RK75C, Android 15, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
+
+*****
+
+####  三尖酸努努  
+##### 131#       发表于 2025-12-26 14:31
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68928941&amp;ptid=2254551" target="_blank">彩虹肥宅 发表于 2025-12-25 22:01</a>
+漫画柜越来越难上了，第一次见那么难上的网址
+
+—— 来自 Xiaomi 23127PN0CC, Android 16, 鹅球 v3.5.99-al ...</blockquote>
+有梯子专门解锁了漫画柜，不过不方便公开说。但一般港澳台的是准没问题的，限制确实挺多的就是了
+
+
+*****
+
+####  彩虹肥宅  
+##### 132#       发表于 2025-12-26 16:32
+
+<blockquote><a href="httphttps://stage1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=68932367&amp;ptid=2254551" target="_blank">三尖酸努努 发表于 2025-12-26 14:31</a>
+
+有梯子专门解锁了漫画柜，不过不方便公开说。但一般港澳台的是准没问题的，限制确实挺多的就是了 ...</blockquote>
+<img src="https://static.stage1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">现在看漫画越来越麻烦了
+
+
+*****
+
+####  魔法师lain  
+##### 133#       发表于 2025-12-27 16:00
+
+kisslove的漫画内容看不了了，只能外层显示，大家有这问题吗
+
+—— 来自 HUAWEI ALT-AL10, Android 12, [鹅球](https://www.pgyer.com/GcUxKd4w) v3.5.99
+
