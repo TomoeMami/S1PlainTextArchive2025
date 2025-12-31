@@ -2394,3 +2394,10 @@ faze一个月前开始备战major的时候大表哥和neo也没想到要打bo5�
 
 Spirit官宣-chopper-zweih，+magixx（指挥）+zont1x
 
+*****
+
+####  朔方原的星  
+##### 4914#         楼主| 发表于 2025-12-28 17:20
+
+<img src="https://p.sda1.dev/29/885cadc41e441563519a72f85c48b9a4/image.jpg" referrerpolicy="no-referrer">
+
