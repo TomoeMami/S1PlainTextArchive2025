@@ -2029,3 +2029,18 @@ cy手上这几年新的不就马娘和学马
 
 <img src="https://static.stage1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">哪家好人设计的XX天要么得每回合点开血条看要么靠小本子记
 
+*****
+
+####  milky658  
+##### 18290#       发表于 2025-12-28 16:57
+
+喜报:可以给gbf刷差评了<img src="https://static.stage1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+*****
+
+####  江戸前ルナ  
+##### 18291#       发表于 2025-12-28 17:43
+
+看到新方阵系列的图，笑出声<img src="https://static.stage1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
